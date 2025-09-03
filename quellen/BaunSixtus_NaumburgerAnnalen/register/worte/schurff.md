@@ -1,0 +1,9 @@
+# Schurff
+
+**Ersterwähnung:** 1530
+
+## Vorkommen
+- 1530: [jahre/1530/README.md](../jahre/1530/README.md) – Hieronymus Schurff
+angenommen...
+- 1534: [jahre/1534/README.md](../jahre/1534/README.md) – Hieronymus Schurff geſtellt, C...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Schurff und Dr...

@@ -1,0 +1,9 @@
+# Reußen
+
+**Ersterwähnung:** 1354
+
+## Vorkommen
+- 1354: [jahre/1354/README.md](../jahre/1354/README.md) – Jn der Stadt ſind viele Reußen geweſen, die au<h dem
+Rat einen jährlichen Zins gegeben...
+- 1442: [jahre/1442/README.md](../jahre/1442/README.md) – Reußen haben dies Jahr zu dreißig hier gewohnt...
+- 1536: [jahre/1536/README.md](../jahre/1536/README.md) – Die Reußen- und Badergaſſe iſt gepflaſtert worden...

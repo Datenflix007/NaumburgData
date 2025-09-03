@@ -1,0 +1,9 @@
+# Kuxrf
+
+**Ersterwähnung:** 1542
+
+## Vorkommen
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Luther und Philippum angelangt, 7;
+ihn beim Kuxrf...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Dienstag Priscä hat der Kuxrf...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Der Kuxrf...

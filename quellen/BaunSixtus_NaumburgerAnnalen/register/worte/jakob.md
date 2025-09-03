@@ -1,0 +1,33 @@
+# Jakob
+
+**Ersterwähnung:** 1437
+
+## Vorkommen
+- 1437: [jahre/1437/README.md](../jahre/1437/README.md) – Desgleichen präſentiert er dem Domprobſt zur Kapelle
+omnium sanctoruw oder trium regum auf dem Rathauſe *
+an Jakob Fabius Stelle den Heinri<...
+- 1492: [jahre/1492/README.md](../jahre/1492/README.md) – Jakob beſtätigt, dafür ihm 1 fl...
+- 1504: [jahre/1504/README.md](../jahre/1504/README.md) – Kurfürſt Friedrihs und Herzog Johanns zu Sachſen
+Diener, Niel Sa> und Jakob Koller haben einen Hof
+zu Faſtnacht anher gelegt, dazu ſind Jhre...
+- 1520: [jahre/1520/README.md](../jahre/1520/README.md) – Wenzel geliehen
+gehabt und nah ſeinem Abſterben dasſelbe Jakob Hondorf
+konferiert, und ihn darauf dem Domprobſt und ſeinem
+Official präſenti...
+- 1536: [jahre/1536/README.md](../jahre/1536/README.md) – Jakob Gartmann hat 2 Lehen S...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Jakob angefangen, haben des Domkapitels zu Naum-
+burg Geſandte und andere Räte zu Zeiy dem Rate bei
+500 ﬀl...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Otmar
+vor der Naumburg, Herr Jakob Thurnheim, Prediger zu
+S...
+- 1584: [jahre/1584/README.md](../jahre/1584/README.md) – Dieſes aber hat neue Kom-
+miſſion ausgewirkt, Jakob von Eßdorf, den Hauptmann
+zu Zeitz, Chriſtof von Häſeler zu Burghäßler und Melchior
+Fran...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – April gefunden wurden, darin er begehrt, daß Jakob
+Starke gegen Zetſchen bei Merſeburg zu ihm kommen
+ſollte, oder er wolle etwas anderes vor...
+- 1608: [jahre/1608/README.md](../jahre/1608/README.md) – Denn obwohl ſie ſich geſtellt, als ſtänden
+ſie auf des Rats Seite, ſo haben ſie ſich doh auf den
+Bierbänken und Kollationen anders vernehmen...

@@ -1,0 +1,19 @@
+# Hierauf
+
+**Ersterwähnung:** 1484
+
+## Vorkommen
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Hierauf iſt dur< ein Magdeburgiſh Urteil erkannt :
+1) daß der Biſchof ſchuldig ſei, den Rat bei ſeiner her-
+gebrachten Gerechtigkeit bleiben...
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – | Hierauf wird an Stelle Heinrih Stammers Simon
+
+i Lauerwald präſentiert dem Domprobſt oder ſeinem Ver-
+weſer zu dem Altar oder Vicarei S...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Hierauf haben Jhre Kurf...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Hierauf haben Jhre Kurf...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Hierauf hat der Rat ſih zu Leipzig nah
+Geld umgethan, aber nichts erlangen können, deswegen
+er an Johann von der Taſchenburg geſchrieben und...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – Hierauf haben die Herren Geheimen Räte Vorſchläge
+gethan...

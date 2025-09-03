@@ -1,0 +1,56 @@
+# Kanzler
+
+**Ersterwähnung:** 1480
+
+## Vorkommen
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – die Huldung laut eines Eides, den der Herr |
+N Kanzler geſchrieben hatte, der Rat aber und die Aelteſten
+
+A baten, ſie bei Eiden und Gelübde...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – Hernach iſ er Herzog Heinrihs zu Sachſen,
+endlih Biſchofs Albre<ht zu Magdeburg und Mainz und
+ſeines Vorfahren Kanzler, Rat und Diener gewor...
+- 1531: [jahre/1531/README.md](../jahre/1531/README.md) – Kraus, Stadtſchreiber, dur< den Kanzler
+Dr...
+- 1535: [jahre/1535/README.md](../jahre/1535/README.md) – i
+
+Der Dechant und Kanzler zu Zeiß ſind zur Be-
+ſtätigung des Rats deputiert worden R...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Der
+Kanzler zu Zeit, Cantoris aber, als ſein Schwager, \hi>t -
+ihm Leute zu, daß er appellieren ſollte...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Hierüber i} des Richters halber ein Zettel an den
+Herrn Kanzler mitgegeben:
+
+1) Daß der Richter der Stifts\tände Vergleichung
+nicht verfolge...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – durch derſelben Kanzler Dr...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Franz Pfeil, Kanzler, und Hans von Schellen-
+berg, Amtmann, den Rat konfirmiert und zu ſih gezogen
+den Pfarrer Dr...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – 23 und hat der Kanzler dem Boten berichtet, daß
+es keiner Antwort bedürſte, die Huſſauer und Spanier
+ſollten ſie bringen...
+- 1564: [jahre/1564/README.md](../jahre/1564/README.md) – zu Sachſen, Herzog Auguſtus
+den von Ponigkau und Kanzler Kieſewetter mit einem
+Credenzſchreiben an das Domkapitel geſendet, welches be-
+gehr...
+- 1569: [jahre/1569/README.md](../jahre/1569/README.md) – Mit den Schuſtern aber iſ} dieſe Vergleichung gemacht,
+daß in den Märkten Petri Pauli und dem grünen Donnerstag
+die ſtädtiſhen Schuſter mit...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – Sächſiſchen Stifſts8räten ſind dann Sonntags Lätare die
+8 Ratsperſonen zum erſten mal beſtätigt worden, und hat
+der Herr Kanzler Dr...
+- 1573: [jahre/1573/README.md](../jahre/1573/README.md) – September dur<h Niel Kohlba<h und Veit
+Kanzler, die dort geweſen, dem Rate zugeſendet worden...
+- 1581: [jahre/1581/README.md](../jahre/1581/README.md) – Georg Arnold, Kanzler zu Zeiß,
+welcher auh ein Canonicus mit geweſen, ſonderli<h Zazu
+gefordert, und iſt niht ohne Vermuten, daß er zu den...
+- 1584: [jahre/1584/README.md](../jahre/1584/README.md) – Endlich
+iſt der Kanzler zu Merſeburg zum Kommiſſar verordnet,
+der ſih beim Rate angegeben, und iſt dieſem vorgeſchlagen,
+oaß er den Eid leiſ...
+- 1608: [jahre/1608/README.md](../jahre/1608/README.md) – Weil aber der Kanzler
+Dr...
+- 1612: [jahre/1612/README.md](../jahre/1612/README.md) – Als Sountags Trinitatis der neue Rat beſtätigt worden,
+hat Montags nachher der Herr Kanzler Dr...

@@ -1,0 +1,33 @@
+# Verwalter
+
+**Ersterwähnung:** 1523
+
+## Vorkommen
+- 1523: [jahre/1523/README.md](../jahre/1523/README.md) – Verwalter der Pfarrkirhe zu S...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – und es will der Verwalter das Scho>k nicht
+anders als zu 24 gr...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Die Verwalter der beiden
+Klöſter vor der Stadt haben die Bürger mit den Lehen-
+wehren beſhwert und von 20 fl...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Der Rat if} befugt, in etlihen Pfortiſchen Gehölzen,
+die in desſelben Gerichten gelegen, ſonderli<h aber im
+Michelsholze zu jagen, welches v...
+- 1569: [jahre/1569/README.md](../jahre/1569/README.md) – zu Sachſen, unſeres gnädigſten Herrn gnädigſte
+Reſolution und Bewilligung iſt herna<h auh dies Jahr
+mit des Kurfürſten eigener Hand unterſch...
+- 1571: [jahre/1571/README.md](../jahre/1571/README.md) – Wie rühmli<h aber ſolchem Scherkel und ſeinen Ad-
+härenten nahzuſchreiben, judicet alius! Bevor, weil die
+anderen Herren in drei Räten davon...
+- 1572: [jahre/1572/README.md](../jahre/1572/README.md) – i
+
+Tuche aus der Schulpforte hat der Verwalter einem
+Tuchſcheerer allein zu bereiten gegeben, dafür iſt gebeten,
+daß ſie dem ganzen Handwerk...
+- 1573: [jahre/1573/README.md](../jahre/1573/README.md) – Der Rat hat keinen Schneider auf den Pforten-Höfen
+leiden wollen, ſondern den Verwalter, dieſelben abzuſchaffen,
+exſu<ht...
+- 1574: [jahre/1574/README.md](../jahre/1574/README.md) – Nichtsdeſtoweniger ſind
+ſolche Ae>er und Güter von dem Verwalter zu Pforta
+und dem Schoſſer zu S...
+- 1584: [jahre/1584/README.md](../jahre/1584/README.md) – Reifſchneider, Thilo |
+von Seebach und Melchior Franke, Verwalter zu Pforte...

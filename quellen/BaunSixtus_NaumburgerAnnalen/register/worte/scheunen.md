@@ -1,0 +1,26 @@
+# Scheunen
+
+**Ersterwähnung:** 1354
+
+## Vorkommen
+- 1354: [jahre/1354/README.md](../jahre/1354/README.md) – Der Rat hat Zinſen einzunehmen gehabt von den
+Scheunen in Grochliß...
+- 1377: [jahre/1377/README.md](../jahre/1377/README.md) – Von den Scheunen auf dem Othmars3berge hat der
+Rat Zinſen eingenommen...
+- 1446: [jahre/1446/README.md](../jahre/1446/README.md) – 216, und
+um Galli in Mattſtedts und Müllers Scheunen in der
+Mühlgaſſe gebrannt...
+- 1475: [jahre/1475/README.md](../jahre/1475/README.md) – Vor dem Jakobsthor ſind 4 Scheunen abgebrannt,
+und wegen der Mordbrenner hat man ſi ſehr gefürchtet...
+- 1506: [jahre/1506/README.md](../jahre/1506/README.md) – Hans Müller und Oehlſchläger haben die Stadt be-
+fehdet und ſind ihre abgeſagten Feinde geweſen, haben
+auch gedroht, die Scheunen abzubrenne...
+- 1528: [jahre/1528/README.md](../jahre/1528/README.md) – Der Richter hat ſih unterſtehen wollen, im Weichbilde,
+welches dem Rate zuſtändig, Räume auszugeben, darauf
+Scheunen gebaut werden möchten,...
+- 1531: [jahre/1531/README.md](../jahre/1531/README.md) – 2) Dieweil der Rat das genieslihe Eigentum hat am
+Weichbilde, außer der Rnigmauer, mit Aufrichtung der
+Scheunen, Häuſer und anderen, ſo ſoll...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – Heinig ſeine erbliden Lehen
+
+Und Zinſen öweier Scheunen, die bor dem Zafobs...

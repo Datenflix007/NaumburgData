@@ -1,0 +1,96 @@
+# Nacht
+
+**Ersterwähnung:** 1391
+
+## Vorkommen
+- 1391: [jahre/1391/README.md](../jahre/1391/README.md) – Als um Eliſabeth der Herzog von Sachſen mit dem
+von Marſchalk Zuſammenkünfte gehalten, iſt die ganze
+Stadt durch die ganze Nacht auf dem Mar...
+- 1395: [jahre/1395/README.md](../jahre/1395/README.md) – Weil ſih die Stadt vor Feuer und den Balgſtädtern
+gefürchtet, hat der Bürgermeiſter außerhalb der Stadt in
+der Nacht ſelbſt gewacht...
+- 1404: [jahre/1404/README.md](../jahre/1404/README.md) – Vor Mordbrennern hat ſih der Rat heftig gefürchtet
+und an etlihe Orte Kundſchafter ausgeſhi>t, Tag und
+Nacht wachen und beſonders herumgehen...
+- 1411: [jahre/1411/README.md](../jahre/1411/README.md) – Vor den Mordbrennern hat ſi<h der Rat ſehr ge-
+fürchtet und daher hin und wieder Kundſchafter ausgeſendet,
+auh Tag und Nacht wachen laſſen...
+- 1412: [jahre/1412/README.md](../jahre/1412/README.md) – Nachdem der Rat anderweit vor ſeinen Feinden ge-
+warnt worden, hat er Tag und Nacht zwei Knechte unter
+der Brücke zu Köſen liegen laſſen...
+- 1446: [jahre/1446/README.md](../jahre/1446/README.md) – Es iſ ihm auh in der
+Nacht die Fähre abgeſchnitten worden...
+- 1456: [jahre/1456/README.md](../jahre/1456/README.md) – Als die jungen Fürſten zu Altenburg vom Schloß bei
+der Nacht dur< den von Kauffungen geſtohlen worden,
+hat der Rat auh dur< junge Geſellen v...
+- 1465: [jahre/1465/README.md](../jahre/1465/README.md) – Würde ſih aber innerhalb der
+Mauern von einem andern, der niht ihr Geſinde oder
+beſeſſen wäre, eine That begeben, worüber man zum
+Leibe rich...
+- 1473: [jahre/1473/README.md](../jahre/1473/README.md) – Schild- und andere Wache iſt an den hohen Feſten
+dur< den Voigt, die Bierzieher und das Hofgeſinde die
+Nacht über gehalten...
+- 1478: [jahre/1478/README.md](../jahre/1478/README.md) – In der Nacht ſind dem Rate Verwarnungsbriefe zu-
+gekommen, ſi<h vor etlichen vorzuſehen, die ihn brennen
+wollten...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – ö |
+
+Jn der Nacht hat der Rat gepflogen einen neuen Rat
+zu fieſen und zu erwählen...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Wegen der Fehde haben jede Nacht 8 Ratsherren und
+ſonſt gewacht...
+- 1487: [jahre/1487/README.md](../jahre/1487/README.md) – Desgleichen iſ die Nacht über geſchildwacht,
+dabei die Bürgermeiſter und die Ratsherren danach ſelbſt
+geweſen...
+- 1502: [jahre/1502/README.md](../jahre/1502/README.md) – Dieſer Nerre hat einen
+großen Anhang gehabt, vor dem iſﬅ der Rat gewarnt,
+daß ſie die Stadt anſte>en wollten, deswegen der Rat
+und die Gemei...
+- 1509: [jahre/1509/README.md](../jahre/1509/README.md) – Wenn eine Kur- oder fürſtliche Perſon zu Naumburg
+über Nacht geblieben, hat der Rat ihnen ein Faß Bier
+und 1 Malter Hafer verehren laſſen, u...
+- 1511: [jahre/1511/README.md](../jahre/1511/README.md) – Hiergegen hat der Rat ſeine angeführte Gerechtigkeit
+angezogen, daß Wi>kmann den Kämmerer an der Wache
+in der Nacht verwundet, deswegen er a...
+- 1516: [jahre/1516/README.md](../jahre/1516/README.md) – Und obwohl |
+es bei der Nacht geſchehen, ſo hat man doh niht ver-
+mißt, daß einige Menſchen im Feuer umgekommen ſind...
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – Dieſe Zeit über i} einem Fürſten, wenn er die Nacht
+über allhier verblieben, 1 Faß Bier und 1 Malter Hafer
+geſchi>t worden...
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – Dem Hausmann iſt ein Beiwächter zugeordnet, welcher
+die halbe Nacht, und der Hausmann die andere halbe
+Nacht wachen ſoll...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – Als der Rat von der Tagfahrt, die vor den Stifts-
+ſtänden mit dem Biſchof vorgeweſen, heimgekommen, iſt das
+Rathaus in der Nacht erbrochen w...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Desgleichen hat die Nacht zuvor, da
+man den Herrn Biſchof auf den Tag nachher beſtätigt, |
+der Teufel ein ſol< Gepolter und Rumpeln in der S...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Graf Gebhard zu Mansfeld hat ſein Fräulein dem
+Grafen Moriz Schli> heimfahren und mit 80 Pferden
+hier die Nacht beherbergen wollen, deswegen...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – in der Nacht aufgebrochen, davon-
+
+
+e BBE
+gezogen und die Stadt ledig gelaſſen, darum der Rat
+anderweit an den von Kreuy und Ebald von Brand...
+- 1550: [jahre/1550/README.md](../jahre/1550/README.md) – es bleibe denn eine Nacht außen,
+und im fleinen Kahn 1 Pfg...
+- 1561: [jahre/1561/README.md](../jahre/1561/README.md) – Sind alſo nah
+dem Steiniſchen Holze geführt worden und darin ent-
+halten bis in die Nacht, und als es ganz finſter geweſen,
+wären ſie aus ei...
+- 1578: [jahre/1578/README.md](../jahre/1578/README.md) – Darauf in Abweſenheit des Domkapitels der Senior her-
+ein zum Bürgermeiſter geſchi>t, ſih entſhuldigen wollen,
+wie die Hopfen geſhi>t und da...
+- 1582: [jahre/1582/README.md](../jahre/1582/README.md) – Er hat aber nebſt ſeinen Freunden hier-
+für die Regierung gebeten und andere Leute angehalten,
+dermaßen, daß die Regierung dieſe Jrrung verg...
+- 1597: [jahre/1597/README.md](../jahre/1597/README.md) – Der Rat hat zu Grochliß auf einem Gries Weiden
+ſte>en laſſen, und alſo ein Täflein angerichtet, das haben
+die Grochlißer in der Nacht verde>...
+- 1609: [jahre/1609/README.md](../jahre/1609/README.md) – Juni in der Nacht, ungefähr um 11 Uhr,
+iſt ein großes Wetter geweſen und hat bei Volkmar
+Fürſtenhaupt in der Viehgaſſe in den Ecbalken, von...

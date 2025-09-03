@@ -1,0 +1,63 @@
+# Gefängnis
+
+**Ersterwähnung:** 1373
+
+## Vorkommen
+- 1373: [jahre/1373/README.md](../jahre/1373/README.md) – Das Gefängnis wird die Temnitz genannt...
+- 1425: [jahre/1425/README.md](../jahre/1425/README.md) – Der Richter hat dieſes Jahr ein Gefängnis gehabt,
+das hat die Frohne geheißen...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – 2) Der Rat ließe Uebelthäter ſegen in ſein Gefängnis,
+auh ſolche Verbrecher losgeben, das wollte der Biſchof
+niht leiden, wenn es ihm was Gr...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – 12) Der Rat hat in der Bürger Häuſer Wirt oder
+Gaſt, “auh auf der Gaſſe zu fahen, gefänglih in ſein
+eigenes Gefängnis zu ſehen, auch los zu...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – Räte Be-
+ſichtigung dulden und hat gebeten, den Rat von ſeinem
+ſonſtigen Vornehmen abzuweiſen, hat au<h zuglei<h einen
+Bericht mit überſandt...
+- 1508: [jahre/1508/README.md](../jahre/1508/README.md) – Als nun die
+Stiſtsſtände zuſammenkommen, hat der Biſchof dieſe und
+andere Sachen mehr geklagt, ſonderli<h aber, daß Reiße
+im Gefängnis ermor...
+- 1510: [jahre/1510/README.md](../jahre/1510/README.md) – Das Domkapitel hat abermals ein neues Gebäude :
+und Gefängnis vor dem Herrenthor angefangen, deshalb
+ſolches an den Kurf...
+- 1512: [jahre/1512/README.md](../jahre/1512/README.md) – an der Küche unter dem
+Tanzboden und Gefängnis verbaut...
+- 1516: [jahre/1516/README.md](../jahre/1516/README.md) – Vom Rat iſt der Brauch gehalten, wenn ein Bürger
+wegen Ungehorſams ins Gefängnis geſezt wird, hat er
+müſſen das Bürgerreht von neuem gewinne...
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – Von Stadthaltern und Räten zu Zeiß iſ dem Richter
+Caspar Böhme befohlen worden, einen beſeſſenen Bürger
+einzuziehen, deſſen hat ſih der Rat...
+- 1531: [jahre/1531/README.md](../jahre/1531/README.md) – Georgen,
+dem zwar die Ställe und Gemächer abgebrannt, und den
+Dom und das Gefängnis, worin man die Uebelthäter
+gefangen zu ſegen pflegt, abg...
+- 1535: [jahre/1535/README.md](../jahre/1535/README.md) – Und Herzog
+Georg hat, weil Pli> in ſeinen Geſchäften damals ge-
+reiſt und ſonſt unter ihm geſeſſen, an Stadthalter und :
+Räte geſchrieben, n...
+- 1536: [jahre/1536/README.md](../jahre/1536/README.md) – Da wäre um Mitter-
+nacht etwas gekommen, das hätte geleuchtet wie ein Licht
+in der Laterne, und ihm Steine vor das Gitter geworfen
+und ſo la...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Er
+wollte aber niht aus des Rats Gefängnis, ſondern man
+müßte ihn na>t herausziehen, und weil die Rechtfertigung
+dergeſtalt umgetrieben und...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – Jndem
+ſie nun vorgegeben, ſie könnte niht gehen, und der Knecht
+das Gefängnis offen gelaſſen, hat ſie es ſteif bewieſen, :
+da ſie niht gewar...
+- 1569: [jahre/1569/README.md](../jahre/1569/README.md) – Solcher iſ na<hmals im Gefängnis, Freitag nah
+Philippi Jakobi geſtorben, darauf der Schoſſer an den
+Rat und die Gerichte begehrt, daß man ih...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – FJ alſo die Sache
+ſigen geblieben, bis der Rat wieder einen Freiheiter beim
+Kopfe nehmen und ins Gefängnis einlegen laſſen...
+- 1577: [jahre/1577/README.md](../jahre/1577/README.md) – Er hat ſi< aber im Gefängnis gehängt...
+- 1584: [jahre/1584/README.md](../jahre/1584/README.md) – Und hat ſih hernach ereignet,
+daß dergleichen ein Schuſter auf der Freiheit, Leonhard
+Röttel gethan habe, welcher darauf eingezogen, eine Ze...

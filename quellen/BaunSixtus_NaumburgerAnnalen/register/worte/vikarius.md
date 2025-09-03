@@ -1,0 +1,8 @@
+# Vikarius
+
+**Ersterwähnung:** 1570
+
+## Vorkommen
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – Peter Mann, Vikarius im hohen Stifte, hat etliche
+
+is...

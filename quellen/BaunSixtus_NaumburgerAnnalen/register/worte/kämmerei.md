@@ -1,0 +1,19 @@
+# Kämmerei
+
+**Ersterwähnung:** 1345
+
+## Vorkommen
+- 1345: [jahre/1345/README.md](../jahre/1345/README.md) – Wenzels hinterlaſſen und beſtimmt, daß die Kämmerei
+auf Michaelis eine Viertel Unze, und zu Oſtern die andere
+Viertel Unze einnehmen und dem...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Paulsmarkt Handſchuhe gereiht und
+aus der Kämmerei bezahlt worden...
+- 1520: [jahre/1520/README.md](../jahre/1520/README.md) – — Desgleichen iſ das Gewölbe in der Kämmerei wieder
+abgetragen und die Deke mit Holz verfertigt...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – Als der Rat von der Tagfahrt, die vor den Stifts-
+ſtänden mit dem Biſchof vorgeweſen, heimgekommen, iſt das
+Rathaus in der Nacht erbrochen w...
+- 1554: [jahre/1554/README.md](../jahre/1554/README.md) – E Die kleine Kämmerei oder Ratsſtube iſt geſeßt worden...
+- 1571: [jahre/1571/README.md](../jahre/1571/README.md) – Montags nah Sexageſimä hat der Rat erfahren,
+welcher ' Geſtalt die Gerber ein Leichentuh laſſen machen,
+daran ein golden Stück und Kreuz, da...

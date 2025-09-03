@@ -1,0 +1,26 @@
+# Schüler
+
+**Ersterwähnung:** 1361
+
+## Vorkommen
+- 1361: [jahre/1361/README.md](../jahre/1361/README.md) – Ebenſo iſ ein Schüler-Eſſen gehalten worden, das
+dem Rat anfänglih nichts erhebliches gekoſtet, laut der
+Rechnungen von 1404, wo der Rat das...
+- 1391: [jahre/1391/README.md](../jahre/1391/README.md) – Die Schüler ſind nah alter Gewohnheit Montag nah
+Vocamus Jucunditatis ins Buchholz gegangen und haben
+Mayen geholt, wozu ihnen der Rat für 7...
+- 1402: [jahre/1402/README.md](../jahre/1402/README.md) – Der Rat hätte verboten, daß niemand einem armen
+Schüler Herberge oder Almoſen geben ſolle, als ſie damals
+alle auf die Freiheit in die Schul...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – Als nun der Biſchof angekommen, ſind ſolche Kerzen-
+wagen an der Prozeſſion zuvörderſt, danah die Schüler,
+Prieſter, Chorherren und Mönche g...
+- 1540: [jahre/1540/README.md](../jahre/1540/README.md) – 3) Das Buchholz, darin haben die Schüler etwa dieſe
+Gerechtigkeit zu S...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Zum dritten die chriſtliche |
+Kleriſei, die in der Wahl des chriſtlihen Biſchofs kon- |
+ſentiert, bewilligt und ihre Stimme dazu gegeben, ſi...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – geeignet, und aufs Rathaus gelegt dergeſtalt, daß der Rat
+für die Zinſen jährli<h Tuch erkaufen und dasſelbe Martini
+unter die Schüler verte...
+- 1568: [jahre/1568/README.md](../jahre/1568/README.md) – Die Emporkirche, worauf die Schüler ſtehen, iſ erbaut...

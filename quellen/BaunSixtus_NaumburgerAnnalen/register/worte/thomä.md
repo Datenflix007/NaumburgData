@@ -1,0 +1,13 @@
+# Thomä
+
+**Ersterwähnung:** 1374
+
+## Vorkommen
+- 1374: [jahre/1374/README.md](../jahre/1374/README.md) – Am Tage Thomä hat der Rat 15 lange Spießer oder
+Speerer, 20 Schüßen und 106 Bürger in das Lager zum
+Streit geſchi>t, welches ihm in die 60 S...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – cj Freitags Thomä Apoſtoli ſind die Schüler allhier
+L mit ihrem Biſchof in die Pforte gegangen...
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – Geſchehen am Tage Thomä...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Donnerstag nah
+Thomä...

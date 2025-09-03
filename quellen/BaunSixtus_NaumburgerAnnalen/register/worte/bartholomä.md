@@ -1,0 +1,9 @@
+# Bartholomä
+
+**Ersterwähnung:** 1474
+
+## Vorkommen
+- 1474: [jahre/1474/README.md](../jahre/1474/README.md) – Durch Herzog Wilhelm zu Sachſen iſt Montag nah
+Bartholomä ein Schütenhof allhier gehalten worden...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – Montags nah Bartholomä...
+- 1574: [jahre/1574/README.md](../jahre/1574/README.md) – Mittwoch na<h Bartholomä wird B...

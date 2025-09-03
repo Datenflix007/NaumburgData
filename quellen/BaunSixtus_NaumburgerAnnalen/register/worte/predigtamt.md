@@ -1,0 +1,13 @@
+# Predigtamt
+
+**Ersterwähnung:** 1525
+
+## Vorkommen
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – ihm gnädig vergönnen wollten, ſolche
+zur Schule und an das Predigtamt zu wenden...
+- 1536: [jahre/1536/README.md](../jahre/1536/README.md) – Gnaden
+hierher geſchi>t, das Predigtamt bis auf Nativit...
+- 1558: [jahre/1558/README.md](../jahre/1558/README.md) – Johann Höner ſein Predigtamt gelegt worden...
+- 1564: [jahre/1564/README.md](../jahre/1564/README.md) – Michael Deutſchmann hat dem Rate zu erkennen
+gegeben, daß er das Predigtamt nicht mehr verſorgen
+könne, da ſeine Schwachheit je mehr und meh...

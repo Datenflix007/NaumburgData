@@ -1,0 +1,49 @@
+# Prädikanten
+
+**Ersterwähnung:** 1536
+
+## Vorkommen
+- 1536: [jahre/1536/README.md](../jahre/1536/README.md) – Und weil der Rat keinen Prädikanten
+gehabt, fo hat Herr Thomas, Prediger zu S...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Dex Biſchof hat begehrt, daß der Rat no<h einen
+
+…… Prädikanten annehmen ſoll, deswegen der Rat einen Bacu-
+larium in der Schule vorgeſchlag...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – ohne ihre Schuld in Ungelegenheit geraten und ertragen
+
+müßten, was ſie nicht zu erwehren vermögen, ſonderlich,
+weil au< dem Rate zuvor die...
+- 1548: [jahre/1548/README.md](../jahre/1548/README.md) – Es hat ſi<h auh der Biſchof über die andren Prädi-
+kanten beſhwert, daß ſie etlihe Perſonen in ihren Pre-
+digten berührt, au<h namhaft gemac...
+- 1550: [jahre/1550/README.md](../jahre/1550/README.md) – Der Biſchof hat ein Gebetlein vom Concil überſendet,
+welches der Rat den Prädikanten zugeſtellt, fie haben
+aber ſolches anzunehmen Bedenken...
+- 1555: [jahre/1555/README.md](../jahre/1555/README.md) – Freitags nah Oſtern, als Herr Georg Freytag ge-
+ſtorben, haben die Prädikanten geſucht, dieweil er die
+Kollekten geleſen, daß ein anderer an...
+- 1561: [jahre/1561/README.md](../jahre/1561/README.md) – Es i} für gut geachtet, daß den Prädikanten ihre
+Gebühr zum Begräbnis gleich den Schülern vor der Thür
+gegeben werden ſoll...
+- 1564: [jahre/1564/README.md](../jahre/1564/README.md) – Der Rat hat ſich bei den visitatoribus verwilligt, die
+Prädikanten und Schuldiener ihres Geſchoſſes zu erlaſſen...
+- 1567: [jahre/1567/README.md](../jahre/1567/README.md) – Der Rat hat die Geſtühle in der Kirche, darin die
+Prädikanten ſtehen, für \ſi<h erbauen laſſen...
+- 1580: [jahre/1580/README.md](../jahre/1580/README.md) – Des Rats Verordnung,
+wie ſih die Prädikanten mit der Leichenpredigt verhalten
+und bezeigen follten...
+- 1592: [jahre/1592/README.md](../jahre/1592/README.md) – September ſind die Herren der Regierung
+hier angekommen, und von dem Rate, den Prädikanten
+und Schuldienern begehrt, daß ſie ſih der formula...
+- 1593: [jahre/1593/README.md](../jahre/1593/README.md) – Die Prädikanten allhier find zur Junveſtitur des neuen
+Superintendenten abgefordert, dazu iſt M...
+- 1603: [jahre/1603/README.md](../jahre/1603/README.md) – Die Regierung zu Zeiß nebſt dem Konſiſtorio haben
+an die Prädikanten und Schulmänner allhier zugleich ge-
+\hrieben und ihnen zu vernehmen ge...
+- 1609: [jahre/1609/README.md](../jahre/1609/README.md) – Weil aber dieſe halbe
+Stunde ſehr beſchwerlich, beides, den Handwerkern, die
+no< am Tiſche ſißen, als auh anderen geweſen, und die
+Litanei d...
+- 1612: [jahre/1612/README.md](../jahre/1612/README.md) – Es wäre abcr an dem, daß ſich die |
+Prädikanten viele Neuerung unterfingen und daher Ur-
+ſache nähmen, daß ihnen von den Zuhörern die öffent...

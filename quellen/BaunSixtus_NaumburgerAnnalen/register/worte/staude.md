@@ -1,0 +1,9 @@
+# Staude
+
+**Ersterwähnung:** 1544
+
+## Vorkommen
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Sebaſtian Staude, Prediger in S...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Burk-=
+hard Staude hat 1000 fl...
+- 1548: [jahre/1548/README.md](../jahre/1548/README.md) – Sebaſtian Staude auf kaiſerl...

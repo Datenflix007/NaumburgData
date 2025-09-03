@@ -1,0 +1,33 @@
+# Sonnabends
+
+**Ersterwähnung:** 1410
+
+## Vorkommen
+- 1410: [jahre/1410/README.md](../jahre/1410/README.md) – Geſchehen Sonnabends nach
+Ueban...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – dem Rate
+20 und folgends den drei Räten, und bat ſie, auf den Sonu-
+L- tag Catharinä und Sonnabends davor zeitli<h zu Zeig
+e bei ſeiner Coro...
+- 1499: [jahre/1499/README.md](../jahre/1499/README.md) – Oswald Hondorf iſt zum Oberbürgermeiſter erwählt |
+und Oculi confirmiert worden und darauf Sonnabends |
+dana<h verſtorben...
+- 1502: [jahre/1502/README.md](../jahre/1502/README.md) – Sonnabends nah Mariä Magdal...
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – Ge-
+ſchehen Sonnabends na<h Phil...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Sonnabends nach Dionyſii...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Unterdeſſen hat \ſi<h begeben, daß das Domkapitel
+dem Rate Sonnabends nah Cinerum angezeigt, wie ſie
+die Ratskonfirmation auf den Sonntag Ju...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – :
+
+Sonnabends Decollationis Johannis, al8 die drei Räte
+bei einander geweſen, zwiſhen 7 und 8 Uhr vor Mittag,
+iſt ein geſhwindes, ſhre>lihes...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – auffordern laſſen, deswegen
+Sonnabends den Befehlshabern zu Freiburg zugeſchrieben,
+wie ſih der Rat mit der Gemeinde und der Freiheit des-
+h...
+- 1564: [jahre/1564/README.md](../jahre/1564/README.md) – Die Herren dreier Räte ſind mit einander einig ge-
+worden, daß den fremden Böttchern Dienstags und Frei-
+tags Nachmittag, ſowohl Sonnabends...

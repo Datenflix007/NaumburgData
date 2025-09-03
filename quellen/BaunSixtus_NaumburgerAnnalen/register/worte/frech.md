@@ -1,0 +1,19 @@
+# Frech
+
+**Ersterwähnung:** 1534
+
+## Vorkommen
+- 1534: [jahre/1534/README.md](../jahre/1534/README.md) – Henning Frech, Vikar in der Pfarrkirche zu S...
+- 1540: [jahre/1540/README.md](../jahre/1540/README.md) – 8) Ein Lehen, welches jeßt Henning Frech hat, gehört
+in die Pfarrkirche, deſſen Collatores ſind Herrn Johann
+Kranichfelds Freunde in Erfurt,...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Heini>e Frech hat hier ein Lehen gehabt auf 30 fl...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – i
+
+Heinig Frech zu Erfurt hat aus der Kirche zu S...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Dieſe Zinſen hat die hohe Obrigkeit, weil
+Henning Frech nichts in der Kirche verrichtet hat, noh
+dur<h andere beſtellen wollen, in gemeinen...
+- 1548: [jahre/1548/README.md](../jahre/1548/README.md) – 165,
+
+Henning Frech zu Erfurt hat die 30 fl...

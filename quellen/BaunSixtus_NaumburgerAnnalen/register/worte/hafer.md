@@ -1,0 +1,63 @@
+# Hafer
+
+**Ersterwähnung:** 1366
+
+## Vorkommen
+- 1366: [jahre/1366/README.md](../jahre/1366/README.md) – Jn das Jakob3hoſpital hat der Rat einigen Hafer
+gegeben...
+- 1371: [jahre/1371/README.md](../jahre/1371/README.md) – Der Biſchof iſt vielfältig zu Naumburg geweſen, des-
+halb ihn der Rat zu Gaſte, er au<h den Rat hinwieder
+gebeten, dabei hat der Rat ihm gem...
+- 1380: [jahre/1380/README.md](../jahre/1380/README.md) – Es i#ﬅ der Brauch geweſen; einem fremden Fürſten,
+wenn er hierher gekommen, ein Malter Hafer zu verehren...
+- 1384: [jahre/1384/README.md](../jahre/1384/README.md) – Der Rat muß viele Pferde gehalten haben, da er viel
+Hafer und Stroh erkauft...
+- 1395: [jahre/1395/README.md](../jahre/1395/README.md) – Lätare iſt der Rat wieder zu Zeiÿ auf des
+
+neuen Biſchofs Coronation oder Krönung geweſen und hat
+: ihm 5 Malter Hafer und einen Wagen Bier...
+- 1402: [jahre/1402/README.md](../jahre/1402/README.md) – Würde den Freiheitern auf dem Markte Hindernis
+angelegt an Gerſte, Korn, Hafer, Leder, Wolle uud anderem...
+- 1418: [jahre/1418/README.md](../jahre/1418/README.md) – der Advokat zu Ecartsberga 11/,100
+Scho>k Hafer von allen Gütern bis an den Stadtgraben
+begehrt, und ſind- die Schoſſer und Amtleute Advokat...
+- 1456: [jahre/1456/README.md](../jahre/1456/README.md) – Der Rat
+hat ihm eine Kufe Bier geſchenkt, 1 Faß Bier, 1 Lage
+Rheinfall und 3 Malter Hafer, und folgends wird be-
+funden, daß dieſes Hofs hal...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Als Herzog Albrecht zum heiligen Grab ziehen wollen
+und allhier übernachtet hat, iſt er mit 2 Faß Bier und
+2 Malter Hafer beſchenkt...
+- 1487: [jahre/1487/README.md](../jahre/1487/README.md) – Die Geſchenke, die den Fürſten, ſo anher kommen,
+verehrt werden, ſind faſt gleih gehalten, und einem jeden
+1 Faß Bier und 1 Malter Hafer, de...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – X Ts
+
+Was der Rat dem Biſchof zu ſhenken gepflogen, wenn
+er hergekommen, iſ aufs meiſte 1 Faß Bier und 1 Malter
+Hafer...
+- 1509: [jahre/1509/README.md](../jahre/1509/README.md) – Wenn eine Kur- oder fürſtliche Perſon zu Naumburg
+über Nacht geblieben, hat der Rat ihnen ein Faß Bier
+und 1 Malter Hafer verehren laſſen, u...
+- 1516: [jahre/1516/README.md](../jahre/1516/README.md) – £121:
+
+Demnach ifﬀ gedachter Herr Adminiſtrator am Tage
+Präſentationis Mariä allhier geweſen, dem au< das
+ordentliche Geſchenk, alſo 1 Faß B...
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – Dieſe Zeit über i} einem Fürſten, wenn er die Nacht
+über allhier verblieben, 1 Faß Bier und 1 Malter Hafer
+geſchi>t worden...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Majeſtät ſih anher begeben
+wolle, daß weder Hafer, Streu noh Weide vorhanden und
+
+—_— geraten, nach Halle, ſich auf E>artsberga, Buttſtädt,...
+- 1550: [jahre/1550/README.md](../jahre/1550/README.md) – Die auf der Pfarre haben wollen Getreide und |
+ſonderlih Hafer in P...
+- 1561: [jahre/1561/README.md](../jahre/1561/README.md) – Sebaſtian Hondorf, Bürgermeiſter allhier, nebſt einem
+andern Bürger, hat wollen bei Querfurt etliche Scho>
+Scheffel Hafer kaufen und als ſie...
+- 1586: [jahre/1586/README.md](../jahre/1586/README.md) – zur Verehrung geſchi>t 2 Lägel ſüßen Weins, 1 Faß
+Rheiniſcher Wein auf einem Wagen, 3 Faß Bier auf dem
+andern, und 1 Fuder Hafer auf dem dri...
+- 1588: [jahre/1588/README.md](../jahre/1588/README.md) – Bei dem Verweſer iſ geſucht, ſeinen Leuten auf der
+Pfarre den Vorkauf an Hafer, Butter u...

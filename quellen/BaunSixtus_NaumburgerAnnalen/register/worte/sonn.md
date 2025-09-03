@@ -1,0 +1,16 @@
+# Sonn
+
+**Ersterwähnung:** 1527
+
+## Vorkommen
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – Sonn-
+abend nah Reminiscere...
+- 1528: [jahre/1528/README.md](../jahre/1528/README.md) – Sonn-
+abends in der Oſterwoche...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Als nun das Domkapitel wegen
+Beſtätigung des neuen Rats weiter angehalten, und der
+Rat bei ihnen ſuchen und bitten laſſen, ſolches eine Zeit...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Sonn-
+abend den 11...
+- 1559: [jahre/1559/README.md](../jahre/1559/README.md) – Sonn-
+abends na< Vocam...

@@ -1,0 +1,23 @@
+# Einer
+
+**Ersterwähnung:** 1402
+
+## Vorkommen
+- 1402: [jahre/1402/README.md](../jahre/1402/README.md) – 9, Einer von Planiy und einer von Hageneſt haben
+dem Richter Hinderung gethan, daß er Mörder und Land-
+beſchädiger niht hat haben können...
+- 1449: [jahre/1449/README.md](../jahre/1449/README.md) – Einer von Schleiniy iſt zum Hauptmann angenommen
+und ihm das Feld befohlen worden...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Einer, Hans Zehl genannt, iſ im Banne geweſen, des-
+halb der Pfarrer ſeinetwegen niht ſingen wollen...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Einer auf der Freiheit, Tiefenthal genannt, wollte
+ſein Weib auf die Kirmes führen, ſ{<lug ſie jenſeits der
+Saale tot, hing ſie an eine Weid...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Einer hat dem Rate allhier ſein Petſchaft nachgegraben,
+eine Hauptverſchreibung auf den Rat gerichtet und zu
+Erfurt bei einem Bürger auf den...
+- 1548: [jahre/1548/README.md](../jahre/1548/README.md) – Einer auf der Pfarre hat Getreide aufgekauft und
+wieder hinwegladen laſſen, das hat der Rat nicht ver-
+ſtattet, weil es wider ſeine Mandate,...
+- 1561: [jahre/1561/README.md](../jahre/1561/README.md) – Einer hat Salpeter wollen ſieden auf den Neuen
+Gütern, das iſt ihm durchaus abgeſchlagen...

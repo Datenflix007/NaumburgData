@@ -1,0 +1,23 @@
+# Ziegel
+
+**Ersterwähnung:** 1499
+
+## Vorkommen
+- 1499: [jahre/1499/README.md](../jahre/1499/README.md) – Die Ziegelſcheune ſamt aller Notdurft und Zugehörung
+iſt erbaut und den Zieglern für ein Tauſend Ziegel zu ;
+brennen 1 fﬀl...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Die Ziegel und das
+Holz iſt den Thainen auch verabfolgt worden...
+- 1548: [jahre/1548/README.md](../jahre/1548/README.md) – Der Rat hat in der Ziegelſcheune die Werkſtatt andern
+vergönnt, Ziegel ſtreihen und brennen zu laſſen...
+- 1552: [jahre/1552/README.md](../jahre/1552/README.md) – Die Saale iſ Sonnabend nach Fabian Sebaſtian ſo
+groß geweſen, daß ſie den dritten Ziegel am Fährhäuslein
+erreiht, und mit großer Gefahr dur<...
+- 1578: [jahre/1578/README.md](../jahre/1578/README.md) – 4) Würde der Ziegel- und Kalkfkauf erhöht und könnten
+deren nicht bekommen...
+- 1581: [jahre/1581/README.md](../jahre/1581/README.md) – 14) Könnten weder Ziegel noh Kalk erlangen zu ihren
+notwendigen Gebäuden, und würden die auf der Freiheit
+mit dem Kauf überſeßt...
+- 1582: [jahre/1582/README.md](../jahre/1582/README.md) – 14) Ziegel und Kalks halber ſoll \ſi<h der Rat dem
+aufgerichteten Vertrag gemäß erzeigen und die Freiheiter
+nicht überſetzen...

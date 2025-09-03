@@ -1,0 +1,56 @@
+# Fähre
+
+**Ersterwähnung:** 1391
+
+## Vorkommen
+- 1391: [jahre/1391/README.md](../jahre/1391/README.md) – Der Rat hat eine neue Fähre machen laſſen, und 1417
+hat er mit dem Markgrafen der Fähre halber eine Jrrung
+gehabt und mit ihm darum geteidin...
+- 1418: [jahre/1418/README.md](../jahre/1418/README.md) – Damit des Rats Geſinde an der Freiburgiſchen Fähre
+das Jahr über übergefahren wird, hat der Rat 4 gr...
+- 1417: [jahre/1417/README.md](../jahre/1417/README.md) – Am Sonntage Lätare hat Biſchof Petrus auf dem
+Schloſſe zu Naumburg mit Herzog Wilhelm zu Sachſen
+wegen des Weichbildes und der Fähre geteidi...
+- 1444: [jahre/1444/README.md](../jahre/1444/README.md) – |
+Verzeichnis der Dörfer, die zur Halliſhen Fähre Ge- |
+treide geben, um überzufahren, als die Pferde für |
+1 Scho, die Fuder ſollen !/, geb...
+- 1446: [jahre/1446/README.md](../jahre/1446/README.md) – Außerdem hat er die
+Straßen belegt, und beſonders an der Hälliſhen Fähre,
+die er ganz wegnehmen und nebſt einem Kahn an der ;
+Wetha nah Weiß...
+- 1499: [jahre/1499/README.md](../jahre/1499/README.md) – /
+
+Der Rat hat mit dem Capitel zu Zeiß wegen der j
+Fähre gehandelt...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – Die Zeit über ſind große Jrrungen vorgeweſen
+zwiſchen dem Domkapitel und dem Rate, als von Pech-,
+Salz- und Weinkauf, über die Zinſen, vom G...
+- 1504: [jahre/1504/README.md](../jahre/1504/README.md) – 3) Der Rat hätte an der Fähre zuvor eine Brücke
+gehalten, jezt geſhähe ihnen Schaden an ihren Gütern...
+- 1512: [jahre/1512/README.md](../jahre/1512/README.md) – Der Rat hat Philipp Hauer ein Krautland abgekauft
+an der Fähre und ſol<h Krautland der Fähre einverleibt;
+dagegen ſollen die Fährleute einen...
+- 1518: [jahre/1518/README.md](../jahre/1518/README.md) – Der Rat hat mit dem Kapitel gehandelt des Pech-,
+Salz-, Holz- und Kornkaufs halber in der Aue, nah der
+Fähre zu...
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – Der Rat hat Hans Döring ſeinen Hopfenfle> bei der
+Halliſchen Fähre abgekauft um 1 Sch...
+- 1528: [jahre/1528/README.md](../jahre/1528/README.md) – Die zwei Brücken nach der Halliſchen Fähre hat der
+‘Rat erbaut und das Domkapitel die Hälfte dazu gegeben...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Der Rat hat nicht weit von der Halliſchen Fähre eine
+Mühle bauen wollen, wenn ſie hätten erlangen können,
+daß ein Wehr über die ganze Saale...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Domini ſind die
+2 Fähnlein Knechte nebſt dem Zeißer Hauptmann Hans
+von Schellenberg, der in den elften Tag allhier gelegen,
+und obwohl er zu...
+- 1578: [jahre/1578/README.md](../jahre/1578/README.md) – Herr Georg von Molau hat wollen ſeinen Gries an
+der Saale bei der Roßbacher Fähre hegen und darauf
+geſucht, ſolches öffentlih auszurufen...
+- 1581: [jahre/1581/README.md](../jahre/1581/README.md) – An der Halliſchen Fähre hat das Waſſer - etlichen
+Leuten an ihren Wieſen zugelegt, das hat der Rat ab-
+hauen laſſen und für ſi< haben wollen...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – Herr Georg von Carlowiß hat ein Weidicht an ſeinem
+Hopfengarten nah der Saale, wenn man zur halliſchen
+Fähre geht, begehrt und haben wollen,...

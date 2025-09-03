@@ -1,0 +1,13 @@
+# Kanne
+
+**Ersterwähnung:** 1371
+
+## Vorkommen
+- 1371: [jahre/1371/README.md](../jahre/1371/README.md) – Der Biſchof iſt vielfältig zu Naumburg geweſen, des-
+halb ihn der Rat zu Gaſte, er au<h den Rat hinwieder
+gebeten, dabei hat der Rat ihm gem...
+- 1560: [jahre/1560/README.md](../jahre/1560/README.md) – Pauls3markt aufgethan, eine Kanne für 10 Pf...
+- 1566: [jahre/1566/README.md](../jahre/1566/README.md) – 3) Die Reichen gäben eine Kanne Kofent für 3 Pf...
+- 1572: [jahre/1572/README.md](../jahre/1572/README.md) – Dem Amtsvogt zu Weißenfels gebührt tvegen der
+ſüßen Weine, die der Rat das Jahr über von Leipzig
+holen läßt, eine Kanne Malvaſier, UCB...

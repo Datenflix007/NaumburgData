@@ -1,0 +1,7 @@
+# Feuerwerk
+
+**Ersterwähnung:** 1537
+
+## Vorkommen
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – jährli<h gegeben würden, und dem
+Holze, davon das Spital jährli<h ſein Feuerwerk hätte...

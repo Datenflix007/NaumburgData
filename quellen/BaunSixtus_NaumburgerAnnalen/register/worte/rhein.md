@@ -1,0 +1,19 @@
+# Rhein
+
+**Ersterwähnung:** 1421
+
+## Vorkommen
+- 1421: [jahre/1421/README.md](../jahre/1421/README.md) – Moritz, Regularordens, hat Hans
+Rockhauſen, dem Rat und treuen Jnhaber des Briefes, 3
+Rhein...
+- 1425: [jahre/1425/README.md](../jahre/1425/README.md) – Von zwei Bürgern, Conrad Zimmermann und Berthold
+Thamm, hat der Rat 1 Rhein...
+- 1428: [jahre/1428/README.md](../jahre/1428/README.md) – Pauli, Predigerordens zu
+Leipzig und allen ihren Nachkommen, hat der Rat eine
+Tonne guter Häringe jährlicher Zinſen verkauft, dafür
+Hans Mat...
+- 1446: [jahre/1446/README.md](../jahre/1446/README.md) – Rhein...
+- 1512: [jahre/1512/README.md](../jahre/1512/README.md) – Rhein...
+- 1584: [jahre/1584/README.md](../jahre/1584/README.md) – Und weil der Ausreiter
+gepfändet, ſolcher aber unter dem Kloſter geſeſſen, ſo hat
+der Schoſſer ihm bei 20 Rhein...

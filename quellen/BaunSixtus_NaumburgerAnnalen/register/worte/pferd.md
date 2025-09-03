@@ -1,0 +1,19 @@
+# Pferd
+
+**Ersterwähnung:** 1402
+
+## Vorkommen
+- 1402: [jahre/1402/README.md](../jahre/1402/README.md) – Der Rat hätte 1381 einen Kärrner, Groß genannt, an-
+gefallen und ihm ein Pferd und anderes genommen...
+- 1473: [jahre/1473/README.md](../jahre/1473/README.md) – Der Rat hat auf ein Pferd 6 gr...
+- 1502: [jahre/1502/README.md](../jahre/1502/README.md) – Am guten Freitage unter dem Amte der Finſtermette
+haben ihrer 2, Lucas Nerre, ein Bürgers Sohn und ein
+anderer, deſſen Vater auf der Freihei...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Es iſt ein Kind auf der Freiheit geboren und getauft |
+worden, das 2 große Zähne und ein Maul wie ein Pferd
+gehabt, weil die Frau vor einem...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Einem Bürger, Matthes Müller, iſ in der Fehde
+ein Pferd genommen worden, das hat er nicht wieder
+bekommen können, ungeachtet die Bürger allh...
+- 1567: [jahre/1567/README.md](../jahre/1567/README.md) – Regierung zu Zeig Kugeln und Büchſen nah Dresden
+führen laſſen, und iſt auf 1 Pferd 12 gr...

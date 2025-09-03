@@ -1,0 +1,26 @@
+# Zwinger
+
+**Ersterwähnung:** 1480
+
+## Vorkommen
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – Paulimarkt hat der Rat no<hmals
+| dur<h die Böttcher laſſen auf- und niederſchlagen und in
+| die Zwinger fahren...
+- 1523: [jahre/1523/README.md](../jahre/1523/README.md) – Die Abzucht in der Neugaſſe dur<h den Zwinger iſt
+verfertigt...
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – In die Zwinger um die Stadt ſind wilde Stämme
+gezogen worden...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – So hat auch der Rat die Thore, Baſteien, die Zwinger,
+Büchſen, ſowohl das Pulver und Gelöt verfertigen laſſen
+und zum Auflauf allerhand Ordn...
+- 1548: [jahre/1548/README.md](../jahre/1548/README.md) – Der Rat hat einem auf der Freiheit eine Roßmühle
+abgekauft und in den Zwinger ſetzen laſſen...
+- 1561: [jahre/1561/README.md](../jahre/1561/README.md) – Von den 3 Räten iſt beſchloſſen, daß weder Holz,
+Stämme, noch anderes in die Zwinger ſolle gelegt werden,
+Fäſſer aber ſollen in den Baſteien...
+- 1574: [jahre/1574/README.md](../jahre/1574/README.md) – Februar ſind die Herren des Rats einig ge-
+worden, daß in feinen Zwinger einiges Reißholz gelegt,
+noh das Vieh darin getrieben werden foll...
+- 1597: [jahre/1597/README.md](../jahre/1597/README.md) – April find die Zwinger unter die Herren
+Seniores abgeteilt, und dem ſtädtiſhen auh einer aus-
+geſeßt worden...

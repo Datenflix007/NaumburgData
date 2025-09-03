@@ -1,0 +1,9 @@
+# Gerichtstag
+
+**Ersterwähnung:** 1564
+
+## Vorkommen
+- 1564: [jahre/1564/README.md](../jahre/1564/README.md) – Darauf
+iſt wiederum ein Sekretär anhero geordnet, welcher bei
+dem Rat um einen peinlichen Gerichtstag wider Gauſau
+angehalten...

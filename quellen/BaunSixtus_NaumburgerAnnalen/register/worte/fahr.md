@@ -1,0 +1,26 @@
+# Fahr
+
+**Ersterwähnung:** 1446
+
+## Vorkommen
+- 1446: [jahre/1446/README.md](../jahre/1446/README.md) – hat erkaufen und das-
+ſelbe Fahr, laut der Quittungen von 1452, hat bar zahlen
+müſſen...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Für 1 Gulden hat man dieſes Fahr 20 hohe Groſchen |
+genommen...
+- 1516: [jahre/1516/README.md](../jahre/1516/README.md) – Nichts deſto weniger, auf daß die
+Bürger des Rats zugethanen Willen vermerken möchten,
+hat er einem jeden die erſten 2 Jahre über na< dem
+Br...
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – Und dieſes Fahr iſ baccalaureus Antonius Ammer=-
+bah zum erſten Schulmeiſter angenommen und Oberſchul-
+meiſter genannt worden, und der Rat h...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Als nun der Stadtſchreiber zu ſeiner Anheimkunft
+referiert, wie der Biſchof in dieſen Sachen verfahren, und
+zu beſorgen geweſen, wofern die...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – zu verzinſen ſchuldig geweſen, die hat er dies Fahr
+abgelegt...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Die Kriegsrüſtung hat dem Rat dieſes Fahr 280 Sch...
+- 1550: [jahre/1550/README.md](../jahre/1550/README.md) – Der Ausſhuß von der Gemeinde hat auf 2 Jahre
+die Bierſteuer eingenommen, welche dem Biſchof bewilligt
+worden ; weil aber der Rat auf das dri...

@@ -1,0 +1,23 @@
+# Oculi
+
+**Ersterwähnung:** 1384
+
+## Vorkommen
+- 1384: [jahre/1384/README.md](../jahre/1384/README.md) – Freitags nah Oculi i} die Stadt größtenteils ab-
+gebrannt, R...
+- 1390: [jahre/1390/README.md](../jahre/1390/README.md) – Wegen des Waidkaufs hat ſowohl der Rat allhier als
+die Städte Erfurt, Arnſtein, Weißenfels, Laucha, Mühl-
+hauſen, Jena und andere Städte mit...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – Mittwoh na< Oculi iſt Biſchof Heinrih zu Zeiß
+verſtorben...
+- 1488: [jahre/1488/README.md](../jahre/1488/README.md) – Am Sonntage Reminiscere haben des Biſchofs Räte
+den neuen Rat beſtätigt, der dana<h Donnerstag nah
+Oculi aufgegangen...
+- 1499: [jahre/1499/README.md](../jahre/1499/README.md) – Oswald Hondorf iſt zum Oberbürgermeiſter erwählt |
+und Oculi confirmiert worden und darauf Sonnabends |
+dana<h verſtorben...
+- 1520: [jahre/1520/README.md](../jahre/1520/README.md) – Geſchehen Montags
+nah Oculi...
+- 1528: [jahre/1528/README.md](../jahre/1528/README.md) – Dieſes Jahr ereignet ſich, daß der neue Rat niht an
+einem Sonntag, ſondern Donnerstag nah Oculi konfirmiert
+und beſtätigt worden...

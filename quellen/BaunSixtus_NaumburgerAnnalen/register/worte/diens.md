@@ -1,0 +1,16 @@
+# Diens
+
+**Ersterwähnung:** 1304
+
+## Vorkommen
+- 1304: [jahre/1304/README.md](../jahre/1304/README.md) – Geſchehen Diens- |
+tags nah Quaſimodogeniti...
+- 1447: [jahre/1447/README.md](../jahre/1447/README.md) – Diens-
+tag nah Cantate...
+- 1522: [jahre/1522/README.md](../jahre/1522/README.md) – Diens-
+tag nah trium regum...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Medlers Statt angenommen, wie er denn Diens-
+tag nah Dionyſii angezogen...
+- 1584: [jahre/1584/README.md](../jahre/1584/README.md) – Adami, beſchloſſen, weil der Pfarrer am Diens-
+tag und Donnerstag ſonſt predigt, daß ſie ſollen der
+Frühpredigt auf dieſe 2 Tage entnommen ſ...

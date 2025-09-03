@@ -1,0 +1,129 @@
+# Räten
+
+**Ersterwähnung:** 1354
+
+## Vorkommen
+- 1354: [jahre/1354/README.md](../jahre/1354/README.md) – Und nachdem ſih anderweit ein beſonderer Mißbrauch ;
+| herausgeſtellt, ſo daß dem Rat jährli<h auf das Spende-
+eſſen allein, das man den Rat...
+- 1411: [jahre/1411/README.md](../jahre/1411/README.md) – Jn dieſem Jahr hat man den Räten in der Rechnung,
+die ein Rat dem andern thut, die jährli<he Einnahme
+wiederum verringert, was in vielen Jah...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – dem Rate
+20 und folgends den drei Räten, und bat ſie, auf den Sonu-
+L- tag Catharinä und Sonnabends davor zeitli<h zu Zeig
+e bei ſeiner Coro...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Folgends hat ein Terminierer von Leipzig ein
+öffentlih Gebet in der Kirche gethan und die Zuhörer
+vermahnt, etlihe Paternoſter und Ave Maria...
+- 1497: [jahre/1497/README.md](../jahre/1497/README.md) – Gnaden Räten zum Generalkapitel gekommen, in
+Hoffnung, S...
+- 1502: [jahre/1502/README.md](../jahre/1502/README.md) – Da aber vorgegeben
+worden, als geſchehe ſolches heimli<h und argwöhnlich, i}
+von den Räten für gut erachtet, daß es hinfort ſoll alle-
+zeit...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – Die haben ſich dann nebſt den Räten darüber
+verwundert und begehrt, daß der Rat ſolches in einem
+Schreiben an Jhre Kur- und fürſtl...
+- 1510: [jahre/1510/README.md](../jahre/1510/README.md) – Und der Gemarterten Be-
+kenntnis muß dreien Räten vorgetragen werden, die zu
+erkennen haben, ob ſol< Bekenntnis zum Tode genugſam
+ſei oder n...
+- 1516: [jahre/1516/README.md](../jahre/1516/README.md) – Gn, zu erkennen gegeben, ſobald ein Biſchof anher ge-
+kommen, daß er vom Rate und den Räten wegen ge-
+meiner Stadt angenommen, ſi< zur Huldu...
+- 1520: [jahre/1520/README.md](../jahre/1520/README.md) – Dieſes Jahr befindet man, daß der neue Rat von den
+biſhöflihen Stadthaltern und Räten nebſt den beigeord-
+neten Herren eines Ehrwürdigen Dom...
+- 1522: [jahre/1522/README.md](../jahre/1522/README.md) – Der Biſchof zu Freiſingen, Adminiſtrator des Stifts
+Naumburg, hat Bericht begehrt, wie von drei Räten auf
+die Acta, welche ihnen von den Ger...
+- 1523: [jahre/1523/README.md](../jahre/1523/README.md) – Es würden denn Urſache und Bewegnis vor-
+fallen, welche von drei Räten für genugſam auch dergeſtalt
+
+
+— 192 —
+
+angeſehen und erkannt, daß ih...
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – Darauf haben des Biſchoſs Philipp von Freiſingen
+Räte zu Zeig ein offen Patent im Bauernkriege aus--
+gehen laſſen, darin ſie den Stiſtsſtänd...
+- 1526: [jahre/1526/README.md](../jahre/1526/README.md) – Und weil der Verweſer damit nicht zufrieden ſein wollen,
+ſondern die Steuer für voll gefordert, wie auch die
+biſchöfliche Regierung darauf B...
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – Darauf der Rat die Sachen dahin gebracht, daß er
+dieſelben mit Stadthaltern und Räten und der Stadt
+Zeiß auf den Kurf...
+- 1528: [jahre/1528/README.md](../jahre/1528/README.md) – Stadthaltern und Räten zu Zeiß wird zu vernehmen
+gegeben, daß der Wenzelskirhhof ganz voll mit toten
+Leichnamen belegt ſei, und dieweil ſich...
+- 1530: [jahre/1530/README.md](../jahre/1530/README.md) – Das Heerſchau-Eſſen iſt jährlih alſo gehalten worden,
+daß dazu gebeten ſind die Herren von drei Räten und
+des Rats tägliches Geſinde und Die...
+- 1535: [jahre/1535/README.md](../jahre/1535/README.md) – Stadthaltern und Räten zu Zeiß ſind 2 Faß Bier
+und 16 Scheffel Salz geſchi>t...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Der Rat hat nicht wollen nachgeben, daß jemand in
+dic Stadt ohne ſein Vorwiſſen vergleitet würde, de8wegen
+er mit Stadthaltern und Räten zu...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – Die Herren bon 3 Räten baben noh etliche Urteile
+geſprochen und den Sc{öppen JU publizieren übergeben...
+- 1540: [jahre/1540/README.md](../jahre/1540/README.md) – Räten,
+die zu den Landgebrechen verordnet, weil anfänglih von
+einem Malze zu Altenburg zu mahlen niht mehr denn
+13 gr...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Darauf dann
+Montag nah Valentin von drei Räten einträchtig be-
+ſchloſſen, daß die Kirche abgebrochen werden ſolle, in-
+maßen denn hierfür Ve...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Es hat aber der Amtmann zu Freiburg Tagfahrt
+angeſtellt, und zwiſchen den Räten gehandelt, und hat der
+Rat zu Freiburg ſih des Kommens entha...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Zehntenern, Geſchworenen auf den Bergwerken, Bürger-=
+meiſtern, Richtern, Räten in den Städten, Schultheißen,
+Gemeinden in der Kur Sachſen u...
+- 1548: [jahre/1548/README.md](../jahre/1548/README.md) – und Fürſten und hohe Potentaten in der
+Predigt geſcholten haben ſollte, und darauf befohlen,
+ſolches ihm, den andern Räten und Gaſſenmeiſter...
+- 1561: [jahre/1561/README.md](../jahre/1561/README.md) – Von den 3 Räten iſt beſchloſſen, daß weder Holz,
+Stämme, noch anderes in die Zwinger ſolle gelegt werden,
+Fäſſer aber ſollen in den Baſteien...
+- 1564: [jahre/1564/README.md](../jahre/1564/README.md) – Räten einen ſchriftlichen Begriff mitgeteilt, und
+dazu den Dienstag nah Lamberti ernannt und angeſetzt...
+- 1569: [jahre/1569/README.md](../jahre/1569/README.md) – Räten zu Zeiß iſ der Superin-
+tendent daſelbſt und Dr...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – Endlich aber, 1577
+iſt es den Räten mit Anzeige allerhand Urſache gänzlich
+abgeſchlagen und dafür gebeten worden...
+- 1571: [jahre/1571/README.md](../jahre/1571/README.md) – Und weil ſolches bis auf das Jahr 1570, da
+der neue Rat aufgegangen, verweilt, iſt zum Unterbürger-
+meiſter die Zeit Johann Scherkel erwählt...
+- 1576: [jahre/1576/README.md](../jahre/1576/README.md) – -Pauls Mahlzeiten ſind eingeſtellt und dafür
+den 3 Räten eine Kollation nah dem Markte ausgeſeßt
+worden, welhe nunmehr auh abgeſchafft...
+- 1578: [jahre/1578/README.md](../jahre/1578/README.md) – 32 und gebeten, denſelben Räten gnädigjſt aufzutragen,
+den Rat in Leipzig auf dem neuen Jahrmarkt zu hören...
+- 1582: [jahre/1582/README.md](../jahre/1582/README.md) – Juli
+1583 eingezogen, anfänglih unter das Rathaus und nach-
+her auf den Roſengarten geführt worden, und i} darauf
+allerhand Jnquiſition vorg...
+- 1584: [jahre/1584/README.md](../jahre/1584/README.md) – Bernhard Winters, Diaconen, von 8
+Räten mit Vorwiſſen des Superintendenten zu Zeit,
+Dr...
+- 1586: [jahre/1586/README.md](../jahre/1586/README.md) – Auf beſondere Anordnung und Befehl der Herren von
+3 Räten iſt das Kuchenba>ken und Austeilung, ſo den
+Boten auf den dritten Feiertag na<h Oſ...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – Hierüber iſ mit dem Domkapitel geredet, und dieſe
+Reſolution von den Räten erfolgt:
+
+1) Daß der grüne Fiſchmarkt in der Stadt gehalten
+werde...
+- 1590: [jahre/1590/README.md](../jahre/1590/README.md) – wiederum 3 Pulſe zu Mittag um 12 Uhr
+geläutet, und hát darauf der Pfarrer gepredigt und die
+Litanei ſingen laſſen, wie au<h die Herren von 3...
+- 1608: [jahre/1608/README.md](../jahre/1608/README.md) – Daher denn aller-
+hand Spaltung in den Räten und in der Bürgerſchaft
+geweſen, und hat unter den Räten keiner, auh nicht ein
+einziger daran g...
+- 1612: [jahre/1612/README.md](../jahre/1612/README.md) – Eſaias Richter, den alten
+Stadtſchreiber und begehrt, daß ſie zu den Herren Räten
+auf die Freiheit kommen ſollten, welches geſchehen...

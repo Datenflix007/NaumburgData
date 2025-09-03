@@ -1,0 +1,33 @@
+# Gefangenen
+
+**Ersterwähnung:** 1373
+
+## Vorkommen
+- 1373: [jahre/1373/README.md](../jahre/1373/README.md) – Der Rat hat wegen eines Gefangenen, Cunß Schleiff
+genannt, eine Botſchaft zum Kaiſer und Markgrafen Wilhelm
+geſchi>t...
+- 1374: [jahre/1374/README.md](../jahre/1374/README.md) – Durch Biſchof Wiko iſt ein Vertrag aufgerichtet wegen
+der Gefangenen auf der Freiheit, desgleichen der Er-
+\hlagenen, darüber man in der Sta...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – Danach iſt vor
+dem Biſchof Sonnabend nah Judica beiden Teilen Tag-
+fahrt gegen Zeiz beraumt, und vom Biſchof Erinnerung
+geſchehn, daß fich e...
+- 1518: [jahre/1518/README.md](../jahre/1518/README.md) – Dem Rate zu Erfurt ernennt der Rat allhier einen
+Tag, daß ſie nebſt ihrem Scharfrichter erſheinen und an
+ſeinen Gefangenen das Rad überſtre>...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – 10) Man wolle dem Rat wider die Gefangenen, die
+er einzieht, niht peinlihes Recht geſtatten...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – Prozeß, wie der Rat wider ſeine Gefangenen zu
+prozedieren pflegt...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – 5) Er läßt die Gefangenen unveruxfehdet davon
+kommen mit des Rats großer Gefahr...
+- 1550: [jahre/1550/README.md](../jahre/1550/README.md) – Ob nun wohl der Rat gemeint ge-
+weſen, ſie dem Richter auszuantworten, ſo hat doh der
+Richter Chriſtof Rothe darauf nicht gewartet, ſondern...
+- 1573: [jahre/1573/README.md](../jahre/1573/README.md) – Die Gerichte in der Stadt nehmen ſich der Gefangenen
+auf der Freiheit niht eher an, es ziehe \ſi<h denn zur
+Peinlichkeit...
+- 1594: [jahre/1594/README.md](../jahre/1594/README.md) – Deshalb das Jakobsthor vor ihnen zugeſhloſſen und die
+Gefangenen und andere vor das Rathaus erfordert, ihnen
+ihr Beginnen vorgehalten und, w...

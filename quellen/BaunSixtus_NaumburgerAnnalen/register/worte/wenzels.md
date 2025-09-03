@@ -1,0 +1,33 @@
+# Wenzels
+
+**Ersterwähnung:** 1345
+
+## Vorkommen
+- 1345: [jahre/1345/README.md](../jahre/1345/README.md) – Wenzels hinterlaſſen und beſtimmt, daß die Kämmerei
+auf Michaelis eine Viertel Unze, und zu Oſtern die andere
+Viertel Unze einnehmen und dem...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – Wenzels...
+- 1512: [jahre/1512/README.md](../jahre/1512/README.md) – Wenzels Bild geweſen, und
+der an Geld 152 fl...
+- 1518: [jahre/1518/README.md](../jahre/1518/README.md) – Wenzels ſamt einen
+ſchönen, mit Kupfer zum Teil gede>ten Turm jämmerlich
+mit allen Glo>en, Altären, Meß- und Geſangbüchern, auh
+prieſterlihe...
+- 1520: [jahre/1520/README.md](../jahre/1520/README.md) – Wenzels-
+turm wieder zum Teil ergänzt, die Spiße und die Erker
+gerichtet, bekleidet und ausgemauert, au< Kupfer zum
+Deen gekauſt...
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – Wenzels
+Kirche...
+- 1536: [jahre/1536/README.md](../jahre/1536/README.md) – Wenzels-
+kirche verſorgt...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Otmar und Wenzels-
+kirhe dem Biſchof au< Fuhren thun, und hiergegen bei
+den Gerichten kein Schreib- noh Auslöſchegeld, viel weniger
+Hülfgeld...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Wenzels Kir<hhof gedrängt geſtanden, ſind auf den
+Marienkirchhof verwieſen, und ſolches dem Rate zu Leipzig
+zugeſchrieben worden, und ſollen...
+- 1550: [jahre/1550/README.md](../jahre/1550/README.md) – Wenzels=
+Kirchhof gelegt, weil aber befunden, daß es niht zuträg-
+lich ſein wolle, iſt er wieder zu Faſtnacht Ao...

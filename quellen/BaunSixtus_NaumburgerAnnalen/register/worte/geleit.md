@@ -1,0 +1,39 @@
+# Geleit
+
+**Ersterwähnung:** 1480
+
+## Vorkommen
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – E Geleit iſt dem Rate zu Erfurt zugeſchrieben worden...
+- 1487: [jahre/1487/README.md](../jahre/1487/README.md) – Pauls3markt haben die Städte dem Rate
+um Geleit geſchrieben, inmaßen dieſes Jahr von der
+Stadt Erfurt und Halberſtadt geſchehen iſt...
+- 1508: [jahre/1508/README.md](../jahre/1508/README.md) – Deswegen hat Reiße ſih beim Biſchof beſhwert, |
+und dieſer ihn los begehrt, ihm auch ſicheres Geleit ge-
+geben, das der Rat nicht wollen ann...
+- 1510: [jahre/1510/README.md](../jahre/1510/README.md) – Der Rat hat einen Bürger und Edelmann, Hans
+Koller genannt, den der Biſchof wider ſein Herkommen
+geleitet, mit Biſchof Johannes Geleit unter...
+- 1514: [jahre/1514/README.md](../jahre/1514/README.md) – Mit dem Geleit in der Stadt
+ſoll es wie vor Alters gehalten werden...
+- 1518: [jahre/1518/README.md](../jahre/1518/README.md) – Dem Rate zu Erfurt ernennt der Rat allhier einen
+Tag, daß ſie nebſt ihrem Scharfrichter erſheinen und an
+ſeinen Gefangenen das Rad überſtre>...
+- 1520: [jahre/1520/README.md](../jahre/1520/README.md) – Daß der grüne Donnerſtag allein
+verlegt und in Mitte der drei Leipziger Märkte geſeßt, |
+daher dem Herzog Georg an Zoll und Geleit viel zn-...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – Veit Freitag hat um Geleit gebeten, darauf er an
+die hohe Obrigkeit zugleih verwieſen, C...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Es hat aber folgends der Abt um
+Geleit beim Rat nachgeſuht und iſt an den Biſchof ge-
+
+wieſen worden...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – das zuvor
+gehabt, das Geleit zu Erfurt, wie es bisher Johann zu
+Sachſen gehört, doh daß das Leibgeleit in S...
+- 1578: [jahre/1578/README.md](../jahre/1578/README.md) – Va-
+lerius Wacke, Bürgermeiſter, das Geleit gegeben und, wie
+ſie vor des Schoſſers Georg von Hoff Thür vorüber
+gegangen, iſt Herr Günther zu...
+- 1592: [jahre/1592/README.md](../jahre/1592/README.md) – Georgen befohlen, ſi<h zu erkundigen,
+was es für eine Gelegenheit um das Dorf habe, und ob
+das Brauen zu Auerſtädt oder das Geleit, ſo ſie v...

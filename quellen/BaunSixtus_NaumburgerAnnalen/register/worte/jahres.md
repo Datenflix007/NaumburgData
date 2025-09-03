@@ -1,0 +1,43 @@
+# Jahres
+
+**Ersterwähnung:** 1354
+
+## Vorkommen
+- 1354: [jahre/1354/README.md](../jahre/1354/README.md) – Pauls Markte ſind dem Biſchof als Jahres-
+y rente 100 Sch...
+- 1395: [jahre/1395/README.md](../jahre/1395/README.md) – Dieſe vorigen und folgenden Jahre iſ der Brauch ge-
+weſen, daß, ſo oft ein Fürſt, Graf oder Herr des Jahres
+na<h Naumburg gekommen, in 3 ode...
+- 1404: [jahre/1404/README.md](../jahre/1404/README.md) – Aus den Geſchoßregiſtern dieſes Jahres iſ} zu erſehen,
+daß der Rat von der Bürgerſchaft viele Leibzinſen erkauft
+und dieſelben Gelder herna<...
+- 1465: [jahre/1465/README.md](../jahre/1465/README.md) – Dieſes Jahres Geſchoßregiſter ergiebt, wenn ein neuer
+Bürger angenommen wurde, daß er niht ein Gewiſſes ge- |
+| geben, ſondern daß einer meh...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – 4 225 Scho> hat man damals dem Biſchof zur Jahres-
+% rente gegeben...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Darauf hat der Rat auf der
+Gaſſenmeiſter Anregen, wenn die Gemeinde alle aus der
+Stadt gehen ſollte, es für nötig betrachtet (Feuers und
+and...
+- 1487: [jahre/1487/README.md](../jahre/1487/README.md) – Aus den Ratsrechnungen dieſes Jahres und zwar aus
+anderem mehr, iſ zu erſehen, wenn der neue Rat auf-
+gegangen, wie es denn gemeinigli<h Don...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – Dieſe ſeine Geburt hat Ehrhardt Milde, damals Stadt-
+ſchreiber, mit allem Fleiße in den Ratsrechnungen dieſes
+Jahres einverleibt und daneben...
+- 1516: [jahre/1516/README.md](../jahre/1516/README.md) – Mittwoch nah Galli am Tage Urſulä dieſes 1517ten
+Jahres i} ein erbärmliches und \{hre>li<hes Feuer in
+Heinrich Pelhens Behauſung, der damals...
+- 1518: [jahre/1518/README.md](../jahre/1518/README.md) – Wenzel wieder erbauen könnte, dergeſtalt, daß
+folhe Jndulgenz und Gnade auf Sonntag Jnvocavit
+folgenden 1519, Jahres angefangen und auf Sonn...
+- 1540: [jahre/1540/README.md](../jahre/1540/README.md) – Desſelben Jahres ſind die Kur- und Fürſten zu
+Sachſen in Unterthänigkeit erſucht worden, alldieweil nun- |
+mehr das heilige-=Woxt„„lauter-in...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Darauf das ganze Volk, weil es um dieſe Zeit des Jahres
+geweſen, den Lobgeſang von der Geburt unſers Herrn
+Jeſu Chriſti : Ein Kindelein ſo l...
+- 1559: [jahre/1559/README.md](../jahre/1559/README.md) – Jm Januar dieſes Jahres hat der Rat ein Stüd
+Mauer im Jakobsgraben hart am Thore anfertigen laſſen,
+desgleichen iſt ein Stü Mauer im April a...

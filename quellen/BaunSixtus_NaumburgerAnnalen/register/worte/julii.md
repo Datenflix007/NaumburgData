@@ -1,0 +1,33 @@
+# Julii
+
+**Ersterwähnung:** 1542
+
+## Vorkommen
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Desgleichen iſ auch eine Schriſt faſt vorgehenden
+Jnhalts im Namen des Herrn Julii desſelben Tages
+öffentlih an des Stifts Kirchthür angeſch...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Georgenberg geweſen, dasſelbe
+eingenommen, nach dem Rat geſchi>t und auf des Kur-
+ſürſten Befehl die Stadt aufgefordert, und in Verweigerung...
+- 1559: [jahre/1559/README.md](../jahre/1559/README.md) – Paulsmarkts allerunterthänigſt
+anhalten laſſen und ſolches dur<h Beförderung des Biſchofs
+Julii erlangt...
+- 1561: [jahre/1561/README.md](../jahre/1561/README.md) – Biſchofs Julii Polizei- und Kleiderordnung, ſo dem
+Rate zugeſendet worden, iſt in der Gemeinde publiziert...
+- 1564: [jahre/1564/README.md](../jahre/1564/README.md) – Andreas Pflug hat nah Biſchofs Julii Tode 9000 fl...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – Donnerstag in der heiligen Oſterwoche hat das Dom-
+- fapitel den Rat wiederum beſchieden, und der Domdechant
+die Sache extendiert man ſollte...
+- 1581: [jahre/1581/README.md](../jahre/1581/README.md) – 3) Habe der Rat beneficia und stipendia aus Biſchofs
+Julii Teſtament, ſolhes wären die Bürgerskinder vordem
+auch fähig geweſen, jezt exkludi...
+- 1582: [jahre/1582/README.md](../jahre/1582/README.md) – 8) Wie es mit den Stipendien und Beneficien zu
+halten, gebe Biſchofs Julii Vertrag, deswegen das Dom-
+fapitel ſolches dabei verbleiben ließe...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – 5) Die Bäer geben Innungen vor, hielten ſih niht |
+nah der Bä>kerordnung und Biſchofs Julii 1555 aufge-
+rihtetem Vertrag...
+- 1609: [jahre/1609/README.md](../jahre/1609/README.md) – Weil
+aber der Rat befunden, daß ſolches wider Biſchofs Julii
+Schied lieſe, darin vorgeſehen, daß nur einer bei der
+Rechnung ſein ſollte, hat...

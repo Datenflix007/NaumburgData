@@ -1,0 +1,53 @@
+# Wenzelskirche
+
+**Ersterwähnung:** 1372
+
+## Vorkommen
+- 1372: [jahre/1372/README.md](../jahre/1372/README.md) – Als nun der Rat in der Wenzelskirche gehuldigt, hat
+das Domkapitel begehrt, ihm gleichfalls zu huldigen, und
+weil der Rat das verweigert, ha...
+- 1404: [jahre/1404/README.md](../jahre/1404/README.md) – Wenzelskirche ein Lehen erlangt, das hat ihm der
+Rat nicht wollen zukommen laſſen, und ihn inabilem oder
+incapacem gehalten...
+- 1446: [jahre/1446/README.md](../jahre/1446/README.md) – Wenzelskirche gefahren wurden, verboten...
+- 1492: [jahre/1492/README.md](../jahre/1492/README.md) – Wenzelskirche zu erwerben...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – Hieronymi in der
+Wenzelskirche allhier geſtiftet und dazu 17!/, fl, die auf
+dem Gute zu Tambach verkonſentiert geweſen, gewidmet,
+und auf gn...
+- 1507: [jahre/1507/README.md](../jahre/1507/README.md) – Wenzelskirche iſ verfertigt
+worden...
+- 1516: [jahre/1516/README.md](../jahre/1516/README.md) – Wenzelskirche anher an den Rat verſchrieben, darauf
+dieſer für ihn ferner bei dem Verweſer des Domprobſtes
+gebeten, es i} aber abgeſchlagen...
+- 1520: [jahre/1520/README.md](../jahre/1520/README.md) – Wenzelskirche dem
+Domprobſt nnd ſeinem Official präſentiert, ihn zu dieſem
+Lehen zu inveſtieren...
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – An den Biſchof zu Freiſingen hat der Rat gebracht,
+
+
+— 200 —
+alldieweil in der- Jakobsgaſſe eine alte Kirche ſtände, die
+allerhand Verhinder...
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – Lange von
+Bolkenhain, jeßiger Prediger in der Wenzelskirche, dem
+Domprobſt zum Altar Johannis Evangeliſtä präſentiert,
+ihn fürder zu inveſti...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Wenzelskirche,
+das andere an das Rathaus affigiert und angeſchlagen
+und 14 Tage lang daran gelaſſen, das dritte aber nach
+Speyer überſendet...
+- 1540: [jahre/1540/README.md](../jahre/1540/README.md) – Wenzelskirche verſorgt wurde, iſt es
+nun dahin geordnet, daß der Jugend an Feiertagen darin
+der Katechismus gepredigt wird, und weil ſie nic...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – | Dieſes Jahr iſt die Treppe an der Wenzelskirche, der
+| Wage gegenüber, verfertigt...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Zinſen, die in die Wenzelskirche
+hier vom Stadtſchreiber geſtiftet und auf dem Tambacher
+Zoll verſchrieben geweſen, ſamt der Hauptſumme able...
+- 1552: [jahre/1552/README.md](../jahre/1552/README.md) – Wenzelskirche
+; durch ſeine Räte konfirmieren laſſen, ſind neben den Zu-
+geordneten des Domkapitels der Richter Caspar Schipgen |
+und Andrea...
+- 1574: [jahre/1574/README.md](../jahre/1574/README.md) – Juni iſt die Wenzelskirche renoviert und mit
+Flederwiſchen abgekehrt worden...

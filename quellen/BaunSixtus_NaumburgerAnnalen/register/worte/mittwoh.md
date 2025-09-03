@@ -1,0 +1,39 @@
+# Mittwoh
+
+**Ersterwähnung:** 1459
+
+## Vorkommen
+- 1459: [jahre/1459/README.md](../jahre/1459/README.md) – |
+Mittwoh na< Cinerum ſind alle die Bäer, die
+4 Wochen auf den Türmen gelegen, vor die drei Räte
+gefordert und gefragt worden, ob ſie ſi<h h...
+- 1465: [jahre/1465/README.md](../jahre/1465/README.md) – Mittwoh na<h Miſericordias Domini
+© f...
+- 1475: [jahre/1475/README.md](../jahre/1475/README.md) – |
+| Mittwoh am Hedwigstage iſt die alte Münze ver-
+hi boten und folgends auf neue Münze gerehnet worden...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – Mittwoh na< Oculi iſt Biſchof Heinrih zu Zeiß
+verſtorben...
+- 1504: [jahre/1504/README.md](../jahre/1504/README.md) – Jm vorigen Jahr iſt erzählt, was ſih des neuen Ge-
+bäudes auf der Freiheit mit dem Kapitel begeben hat,
+und weil der Rat eine Sache ohne die...
+- 1522: [jahre/1522/README.md](../jahre/1522/README.md) – Der Biſchof von Freiſingen hat mit den Schüßen im
+Graben geſchoſſen, Mittwoh nah Laurentii, und eine
+Collation gehalten...
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – Mittwoh nach Oſtern iſ in Bürger Veit Glo>ners
+und Michael Gebhards Ställen Feuer aufgegangen, aber
+dur<h Gottes Hülſe getilgt worden...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Ein Edelmann zu Naumburg, Ebersberg genannt, iſt
+
+gefangen worden, der hat einen andern Edelmann, Bern-
+
+
+hard Mücheln, auf der Freiheit woh...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Und auf des Rats-
+erfolgten unterthänigſten Bericht hat hochgedachter Kur- |
+fürſt zu Sachſen am Dato Mittwoh nah Converſionis
+Pauli an den...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Nichtsdeſtoweniger iſ er in wenig Tagen,
+als Mittwoh na< Mariä Magdal...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Mittwoh na< Bartholomäi...
+- 1548: [jahre/1548/README.md](../jahre/1548/README.md) – Mittwoh na<h Cantate...

@@ -1,0 +1,33 @@
+# Abgefertigten
+
+**Ersterwähnung:** 1390
+
+## Vorkommen
+- 1390: [jahre/1390/README.md](../jahre/1390/README.md) – Desgleichen hat der Rat au< na< Zittau,
+Schweidniß, Liegniß und Breslau ſeine Abgefertigten ge-
+ſendet, und nebſt den thüringiſchen Städten...
+- 1504: [jahre/1504/README.md](../jahre/1504/README.md) – Freitags nah Junvocavit hat der Kurfürſt dem Rate
+ſelbſt Audienz gegeben, und die Sachen ſind von vorn
+angebracht worden, dabei Herzog Fried...
+- 1526: [jahre/1526/README.md](../jahre/1526/README.md) – 144, auch ſeine Abgefertigten dahin geordnet...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – begehrt, bei den Abgefertigten dieſe Ver-
+ordnung zu thun, daß nochmals dergleichen Verzeichnis
+erfolge, und das Geld aus dem Stifte, neben...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – Derowegen der Rat ſeine Abgefertigten |
+an den Kurf...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – 131
+IET e Am Tage Katharinä aber, und als Kurfürſt Mo —
+i FART zu Halle gelegen und mit ſeinem Heere anher af die
+UE _Stadt gewollt, hat Biſ...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Befehlshaber zu Freiburg, und dem Herzog
+Auguſtus zu Sachſen unter chriſtlichem Biſchof Julius
+zugeordnet und ergeben hätte, wollte au< nohm...
+- 1564: [jahre/1564/README.md](../jahre/1564/README.md) – ſächſiſhen Abgefertigten ihre Werbung
+verrichtet, die vornehmlich dahin gerichtet, daß Jhre Kurf...
+- 1578: [jahre/1578/README.md](../jahre/1578/README.md) – Obwohl uun die Abgefertigten ſich
+ſehr entſchuldigt und durchaus nicht beiviüigen wollen, 19
+iſt ihnen doh befohlen worden, nicht eher, ſie...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – die
+auch alſo gehalten, und ſind die Sachen in Beiſein des
+Domkapitels, des von Carlowig Abgefertigten und des
+Rats beſichtigt, abgeredet un...

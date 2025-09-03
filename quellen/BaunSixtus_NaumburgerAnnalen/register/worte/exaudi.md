@@ -1,0 +1,33 @@
+# Exaudi
+
+**Ersterwähnung:** 1418
+
+## Vorkommen
+- 1418: [jahre/1418/README.md](../jahre/1418/README.md) – | Als die Bürger Exaudi zu Querfurt zu Markt geweſen,
+hat der Rat mit 12 Pferden auf ſie halten und warten
+laſſen, daraus abzunehmen, daß ih...
+- 1417: [jahre/1417/README.md](../jahre/1417/README.md) – Die Woche Exaudi, als der Biſchof vom Coſtnißer
+Conzil wieder gekommen iſ, wo er den Huß hat con-
+demnieren und verbrennen helfen, hat der R...
+- 1475: [jahre/1475/README.md](../jahre/1475/README.md) – Dienstag na<h Exaudi hat der Rat Hornaffſen und
+Brezeln beſehen...
+- 1511: [jahre/1511/README.md](../jahre/1511/README.md) – Der Rat iſﬅ von dem von Rockhauſen zu Kirch-
+ſcheidungen zur Glockentaufe zu Gevatter gebeten am
+
+: Sonntage Exaudi, und ſind 40 gr...
+- 1527: [jahre/1527/README.md](../jahre/1527/README.md) – Heimfahrt ein zwiefaher vergoldeter Credenz ſamt
+50 Joachimsthalern zu Torgau Montags na<h Exaudi
+durch des Rats Abgeſandte verehrt worden...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – Schußfürſten Vor-
+beſcheid und Entſcheidung geſucht, daß er Mittwoch nah
+Exaudi zu Torgau ſein und der Handlung gewarten
+ſollte...
+- 1561: [jahre/1561/README.md](../jahre/1561/README.md) – Donnerstag nah Exaudi iſ von Biſchof Julio Ver-
+gleihung geſchehen, zwiſchen dem Kapitel und dem Rat,
+daß das Waſſer und Abzucht aus der Sta...
+- 1567: [jahre/1567/README.md](../jahre/1567/README.md) – um Exaudi...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – Freitag nah Exaudi hat der Rat Anton von Boden
+die halbe Trift zum Rödichen für 500 fl...
+- 1575: [jahre/1575/README.md](../jahre/1575/README.md) – Ft
+geſhehen Montags na<h Exaudi, und ſind daraus 15
+Teile gefertigt...

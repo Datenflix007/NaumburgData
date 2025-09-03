@@ -1,0 +1,39 @@
+# Trift
+
+**Ersterwähnung:** 1516
+
+## Vorkommen
+- 1516: [jahre/1516/README.md](../jahre/1516/README.md) – Es iſ auh die Sache zu Recht gediehen und ſo weit
+gekommen, daß die Aebte, denen die Trift geweigert worden,
+reſtituiert, davon der Rat an P...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – | 12) Hätte ſih eine Verachtung wegen Thains Ge-
+horſam zugetragen, 450, welches der Rat, daß es zu Er-
+haltung gemeiner Stadt Gerechtigkeit...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – |
+Der Schäfer zu Boblas hat auf der Bürger Feldern
+gehütet mit den Schafen, deswegen iſt dem Schoſſer zu |
+Eiſenberg geſchrieben, ihn zu Abt...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Mit den Thainen hat der Rat wegen der Trift, daß
+dieſelbe mit fremdem Vieh belegt werde, viele Jahre in
+großer Rechtfertigung geſtanden, die...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – —_, Der Rat hat die halbe Trift am Rödichen um 500 fl...
+- 1576: [jahre/1576/README.md](../jahre/1576/README.md) – Auf was Maßen der von Porzig zu Neidſchüß ſeine
+Trift gebrauchen, und daß er der Bürger Ae>er nicht be-
+treiben ſoll, iſ ein ſonderliher Ver...
+- 1578: [jahre/1578/README.md](../jahre/1578/README.md) – Als der Rat das Georgener Vieh verkauft, iſt Georg
+von Hoff die Trift um 12 fl...
+- 1579: [jahre/1579/README.md](../jahre/1579/README.md) – 7) Der Anger ſollte ihnen mit der Trift entzogen
+werden...
+- 1581: [jahre/1581/README.md](../jahre/1581/README.md) – 21) Die Freiheiter wollen die Trift auf den Georgener
+Ae>kern haben...
+- 1582: [jahre/1582/README.md](../jahre/1582/README.md) – |
+
+7) Trift auf den Georgener Gütern ſoll vom Dom- |
+fapitel ausfindig gemacht werden...
+- 1584: [jahre/1584/README.md](../jahre/1584/README.md) – 3) Hätten die Georgengäſſer vor der Zeit die Trift
+gemietet, jezt wollten ſie derſelben berechtigt ſein, de8-
+halb der Rat gepfändet...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – s
+
+12) Die Schmälerung der Trift geſchehe vielmehr von
+ihnen, den Freiheitern und dem Kapitel...

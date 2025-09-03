@@ -1,0 +1,26 @@
+# Jedoch
+
+**Ersterwähnung:** 1484
+
+## Vorkommen
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Jedoch ſollen ſie nichts an
+die Bürger bringen, damit keine Spaltung daraus erfolge...
+- 1487: [jahre/1487/README.md](../jahre/1487/README.md) – Jedoch iſt auh
+etlihen Wein in Kannen geſchi>t...
+- 1502: [jahre/1502/README.md](../jahre/1502/README.md) – Jedoch haben die Bür-
+germeiſter und Kämmerer, desgleichen der Stadtſchreiber,
+anſtatt dieſer Beſoldung ihren Weibern ziemliche Verehrung
+an...
+- 1520: [jahre/1520/README.md](../jahre/1520/README.md) – Jedoch ſoll er der Bürgerſchaft keinen *
+Schaden thun; wofern es aber geſchehe, ſoll der Hüter
+5 gr...
+- 1523: [jahre/1523/README.md](../jahre/1523/README.md) – Jedoch wo dieſelbe geſeßte Friſt von jemand übergangen,
+daß der oder dieſelbigen ihres erlangten Bürgerrechts ent-
+ſezt und ſolches von Neue...
+- 1555: [jahre/1555/README.md](../jahre/1555/README.md) – Jedoch daß
+ſie niht geſührt würden, als bis auf das Rathaus in Ge-
+horſam...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – Jedoch ſollte es niht mehr geſchehen, und man könnte ſi
+leiht mit dem Rat und den Gerichten vertragen, daß es
+feiner Weiterung bedürſte...
+- 1607: [jahre/1607/README.md](../jahre/1607/README.md) – Jedoch auf Widerruf...

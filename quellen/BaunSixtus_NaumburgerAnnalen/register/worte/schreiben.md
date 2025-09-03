@@ -1,0 +1,46 @@
+# Schreiben
+
+**Ersterwähnung:** 1412
+
+## Vorkommen
+- 1412: [jahre/1412/README.md](../jahre/1412/README.md) – Graf Günther zu Schwarz-
+burg hat dann um Jubilate ſeine Räte hierher geſchi>t,
+die mit dem Rate darum geteidingt, und weil au<h an
+dieſem T...
+- 1465: [jahre/1465/README.md](../jahre/1465/README.md) – Das Schreiben des Papſtes zu Rom, worin er den
+König Gerſik in Böhmen wegen der“ huſſitiſchen Sekte |
+in Bann thut und für einen Ketzer dekl...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – Die haben ſich dann nebſt den Räten darüber
+verwundert und begehrt, daß der Rat ſolches in einem
+Schreiben an Jhre Kur- und fürſtl...
+- 1520: [jahre/1520/README.md](../jahre/1520/README.md) – und ihnen
+Schreiben und Promotoriales an Herrn Hoyer, Grafen
+zu Mansfeld, röm...
+- 1537: [jahre/1537/README.md](../jahre/1537/README.md) – zu Sachſen ein unterthänigſtes Schreiben ab- |
+gehen zu laſſen, darin er gebeten, daß Jhre Kurf...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – Dann iſ} ein Schreiben zu finden, daß ſih Stadthalter
+und Räte erklären, wenn der Rat Velten Rörich ver-
+gleiten würde, daß ſie es au< thun...
+- 1540: [jahre/1540/README.md](../jahre/1540/README.md) – und auf der Domkapitularen freundſchaft-
+lihes Schreiben an den Rat ihnen hinwieder zu erkennen
+gegeben, daß ſie ſih nennen und anzeigen fol...
+- 1542: [jahre/1542/README.md](../jahre/1542/README.md) – Und weil Rat und Räte dieſes Bedenken ge-
+habt, daß aus ſolhem Schreiben Herrn Julii- Pflugs ge=-
+meiner Stadt Weiterung erfolgen möchte, ha...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – In einem Schreiben an Jobſt von Hano, Kurfürſtl...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Schreiben losgezählt,
+
+| Sonntags na< Vocam...
+- 1564: [jahre/1564/README.md](../jahre/1564/README.md) – Domkapitel ein unterthänigſt Schreiben an den Kurf...
+- 1571: [jahre/1571/README.md](../jahre/1571/README.md) – Daß
+aber etliche Einnahmen niht eingezeichnet, wäre ihnen zu
+gute zu halten, ſintemal ſolhes des Kammerſchreibers,
+die Zeit Georg Reuſtels,...
+- 1572: [jahre/1572/README.md](../jahre/1572/README.md) – Wolf Finke hat ſi<h als Bürger allerlei beſchwerlicher
+und bedrohlicher Schreiben unterſtanden, daher auf ge-
+ſchehene Rechtsbelernung ihn z...
+- 1584: [jahre/1584/README.md](../jahre/1584/README.md) – Deshalb der Rat an die Regierung geſchi>t und ihr an=-
+gebracht :
+
+1) Daß der Rat wegen inhabender Gerichte dem
+Schoſſer keine Juſtifikation...

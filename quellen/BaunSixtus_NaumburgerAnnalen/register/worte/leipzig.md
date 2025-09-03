@@ -1,0 +1,26 @@
+# Leipzig
+
+**Ersterwähnung:** 1410
+
+## Vorkommen
+- 1410: [jahre/1410/README.md](../jahre/1410/README.md) – Der Biſchof, dem
+der Rat Beiſtand geleiſtet, hat herna<h deshalb mit dem
+Markgrafen zu Altenburg und Leipzig teidingen müſſen...
+- 1417: [jahre/1417/README.md](../jahre/1417/README.md) – Dem Markgrafen Friedrih ſind 6 Pferde und 6
+Schüßen na< Leipzig, dann um Katharinä 4 Schützen
+zum Dienſt geſchi>t worden, als er vor Aſchers...
+- 1453: [jahre/1453/README.md](../jahre/1453/README.md) – Zu Leipzig hat der Rat etliche Büchſen gießen laſſen...
+- 1508: [jahre/1508/README.md](../jahre/1508/README.md) – zur Stadt
+verſehen ſollte; de8wegen der Rat nicht allein für ſich
+folches beratſhlagt, ſondern au<h den Biſchof zu Rate
+gezogen hat, und hoc...
+- 1539: [jahre/1539/README.md](../jahre/1539/README.md) – Und ſolche Akten werden nah Leipzig, Halle, Wittenberg
+überſendet...
+- 1540: [jahre/1540/README.md](../jahre/1540/README.md) – Weil vordem die Gerade von hier nah Leipzig ver-
+abfolgt worden, ſo wird Herr Johann Steinhöfer, der
+Arznei Licentiat, dur<h den Rat allhier...
+- 1568: [jahre/1568/README.md](../jahre/1568/README.md) – zu Sachſen nah Leipzig in das Konſiſtorium be=
+\chieden und alsbald enturlaubt worden...
+- 1583: [jahre/1583/README.md](../jahre/1583/README.md) – Höner
+hat ſo viel erhalten, daß er nah Leipzig zum Rentmeiſter
+dimittiert, auf 500 fl...

@@ -1,0 +1,36 @@
+# Jhren
+
+**Ersterwähnung:** 1404
+
+## Vorkommen
+- 1404: [jahre/1404/README.md](../jahre/1404/README.md) – Dagegen ſind zwei Quittungen vorhanden, daß
+700 rheiniſhe Gulden Jhren Gnaden dofür gereiht worden
+find...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Herr Ernſt, Erzmarſchall und Kurfürſt und Herr
+Albrecht, Gebrüder, Herzöge zu Sachſen, haben gegen die
+Aebte, Prälaten, Klöſter, Capitel zu...
+- 1504: [jahre/1504/README.md](../jahre/1504/README.md) – Und weil er Bericht gethan, daß ſolhes Jhren Kur- und
+fürſtl...
+- 1509: [jahre/1509/README.md](../jahre/1509/README.md) – :
+
+Dieweil der Rat den Kurfürſten zn Sachſen zum
+Schuzherrn gehabt, beſagen die Rechnungen, daß Jhren
+Kurf...
+- 1522: [jahre/1522/README.md](../jahre/1522/README.md) – Deswegen Jhren:
+f...
+- 1528: [jahre/1528/README.md](../jahre/1528/README.md) – :
+E ES Obwohl der Rat gegen den Biſchof von Freiſingen
+6 ſih vordem erboten, bis mit Jhren f...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – Alldieweil aber Biſchof Julius von
+ihnen geſeßt, und ſie vom Kurfürſten wiederum erobert,
+hätten ſie die Aufforderung Jhren Kurf...
+- 1558: [jahre/1558/README.md](../jahre/1558/README.md) – Ein Ehrwürdiges Domkapitel und der Rat hat ſi<
+mit den Herzögen zu Sachſen vereinigt und verglichen, daß
+das Domkapitel und der Rat Jhren f...
+- 1568: [jahre/1568/README.md](../jahre/1568/README.md) – zu Sachſen das Städtegeld des Peter-Paul-
+marktes und des grünen Donnerstags, ſo Jhren Kürf...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – zu
+Sachſen an den Rat geſchrieben und gnädigſt begehrt,
+Jhren Kurfürſtl...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – 3) Wie es das Kapitel mit den Schuſtern halte, wolle
+es der Rat mit den Jhren halten...

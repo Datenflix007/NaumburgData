@@ -1,0 +1,66 @@
+# Rechnung
+
+**Ersterwähnung:** 1361
+
+## Vorkommen
+- 1361: [jahre/1361/README.md](../jahre/1361/README.md) – Scho> aufgewendet werden
+mußten, laut ‘der Rechnung von 1396, wo das Eſſen auh
+verändert, dafür die Heerſchau gehalten, endlih aber der
+Voge...
+- 1411: [jahre/1411/README.md](../jahre/1411/README.md) – Jn dieſem Jahr hat man den Räten in der Rechnung,
+die ein Rat dem andern thut, die jährli<he Einnahme
+wiederum verringert, was in vielen Jah...
+- 1412: [jahre/1412/README.md](../jahre/1412/README.md) – In der Rechnung iſt zu finden, daß man 1/, fl...
+- 1480: [jahre/1480/README.md](../jahre/1480/README.md) – L Um dieſe Zeit hat Biſchof Dietrih vom Rate zu Zeiß
+; erlangt, daß er ihn bei ſeiner Rechnung, die ein Rat dem
+( andern thut, ſißen laſſe,...
+- 1484: [jahre/1484/README.md](../jahre/1484/README.md) – Und danach, als Biſchof Dietrih zu Naum-
+burg von der Stadt begehrt, ihn bei der Rechnung, die
+ein Rat jährli<h dem andern thöte, ſißen zu l...
+- 1514: [jahre/1514/README.md](../jahre/1514/README.md) – Wegen des Rechengeſchoſſes hat der Rat ein Statut,
+welches auh der Bürgerſchaſt, wenn ſie ihr Rechengeſchoß
+begreift, anſängli<h vorgehalten...
+- 1536: [jahre/1536/README.md](../jahre/1536/README.md) – Die Zipfler haben einem Ratsherrn, der dazu ver-
+ordnet, Rechnung thun müſſen und ihm das Geld wöchent-
+lih überantwortet...
+- 1540: [jahre/1540/README.md](../jahre/1540/README.md) – Die Rechnung der Kirche zu S...
+- 1541: [jahre/1541/README.md](../jahre/1541/README.md) – |
+Zudem wären ſie jezt Erbherren des Stiſts, und würden |
+die neu erwählten Rats3perſonen an ihrem Amte gehindert,
+desgleichen wäre des alte...
+- 1547: [jahre/1547/README.md](../jahre/1547/README.md) – waltung gehabt, verſtri>t, und um Erledigung ſeinetwegen
+i gebeten, weil er ſi< zur Rechnung erbieten thäte...
+- 1548: [jahre/1548/README.md](../jahre/1548/README.md) – Den Vormündern, wenn fie ihrer Mündlein wegen
+Rechnung gethan, hat der Rat ſchriftlih quittiert...
+- 1569: [jahre/1569/README.md](../jahre/1569/README.md) – Und obwohl hierauf die
+Herren Bürgermeiſter ſehen ſollen, ſo ſind doch einfältige
+Perſonen, Handwerksleute und diejenigen, die es nicht ver-...
+- 1570: [jahre/1570/README.md](../jahre/1570/README.md) – Sonderli<h auch, weil
+gewiſſe Schiede und Verträge vorhanden, wie des Rats
+Rechnung jährlih und in weſſen Beiſein und Gegenwart
+ſie geſchehe...
+- 1571: [jahre/1571/README.md](../jahre/1571/README.md) – Und obwohl der Rat endlich eine
+Rechnung überſendet, ſo hat er doh angezogen, daß er
+deſſen befreit und daneben proteſtiert, damit ſolches i...
+- 1572: [jahre/1572/README.md](../jahre/1572/README.md) – Und weil 1572 in der
+Rechnung allerhand Jrrungen geweſen, iſ dieſelbe von
+der Regierung in B...
+- 1577: [jahre/1577/README.md](../jahre/1577/README.md) – Als der Rat dem neuen Rate Donnerstag nach Kantate
+Rechnung gethan, hat der abgefertigte Sekretär begehrt,
+ihm Kopie der Rechnung abfolgen z...
+- 1578: [jahre/1578/README.md](../jahre/1578/README.md) – Und obwohl der Rat verhofft,
+die Regierung ſollte hierin dem Rat beigeſtanden haben,
+ſo iſt doh der Vote lange verzogen, und dem Rate noh
+hö...
+- 1583: [jahre/1583/README.md](../jahre/1583/README.md) – Alldie-
+weil aber ſolche ihre Untreue laut geworden, ſind ſie zu
+Gefängnis genommen und ihnen auferlegt worden, die
+
+R Rechnung zu thun...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – Als des Rats Rechnungen gehalten, und Sekretarius
+Egidius von Berga abgefertigt worden, hat er auf-
+ſchreiben wollen, was für Perſonen vorge...
+- 1609: [jahre/1609/README.md](../jahre/1609/README.md) – Mai hat der Rat ſeine Rechnung gethan,
+und ſind von der Regierung dazu abgefertigt worden
+Johann Wilhelm Neumeyer und Caſpar Ernſt, Sekre-
+t...

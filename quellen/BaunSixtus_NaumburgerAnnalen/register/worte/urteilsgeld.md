@@ -1,0 +1,8 @@
+# Urteilsgeld
+
+**Ersterwähnung:** 1531
+
+## Vorkommen
+- 1531: [jahre/1531/README.md](../jahre/1531/README.md) – 9) Wenn zum Urteil beſchloſſen und die Akten über-
+ſendet werden ſollen, ſo ſoll der Rat den Parteien bei
+Gehorſam binnen 14 Tagen das Urtei...

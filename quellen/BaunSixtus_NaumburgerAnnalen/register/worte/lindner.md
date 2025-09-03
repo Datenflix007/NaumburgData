@@ -1,0 +1,19 @@
+# Lindner
+
+**Ersterwähnung:** 1571
+
+## Vorkommen
+- 1571: [jahre/1571/README.md](../jahre/1571/README.md) – Wie rühmli<h aber ſolchem Scherkel und ſeinen Ad-
+härenten nahzuſchreiben, judicet alius! Bevor, weil die
+anderen Herren in drei Räten davon...
+- 1577: [jahre/1577/README.md](../jahre/1577/README.md) – Wolf Lindner, Dr...
+- 1581: [jahre/1581/README.md](../jahre/1581/README.md) – Wolf Lindner, Dr...
+- 1583: [jahre/1583/README.md](../jahre/1583/README.md) – Januar ſind Andreas Mulz, Hans Rein-
+ſtein, Paul und Barbara Lindner an den Rat zu Magde-
+burg zur Erlangung ihrer Erbſchaft verſchrieben, e...
+- 1587: [jahre/1587/README.md](../jahre/1587/README.md) – Weil aber
+Bürgermeiſter Lindner ſeinen Sohn in der Schule, hat
+er mehr für ſeinen Sohn, als für den Rat geſteigert...
+- 1612: [jahre/1612/README.md](../jahre/1612/README.md) – Lindner einen Zank an- |
+gefangen, den ſie Ehebruchs beſchuldigen wollten, und
+könnten nichts auf ihn bringen, welches in der Kirche eine |...

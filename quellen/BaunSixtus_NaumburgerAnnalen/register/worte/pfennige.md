@@ -1,0 +1,36 @@
+# Pfennige
+
+**Ersterwähnung:** 1329
+
+## Vorkommen
+- 1329: [jahre/1329/README.md](../jahre/1329/README.md) – Hingegen müſſen ſie jährli<h 12 Schilling Pfennige auf
+Oſtern und ebenſoviel auf Michaelis, und dem Biſchof am
+Chriſtabend einen Stollen von...
+- 1330: [jahre/1330/README.md](../jahre/1330/README.md) – Dieſes hat Biſchof Heinrich mit Konſens des Kapitels und
+Rats und Conrads von Sulza und ſeiner Erben, welcher
+ſein Recht an dem Schultheißen...
+- 1349: [jahre/1349/README.md](../jahre/1349/README.md) – Damals ſind die alten Groſchen im Gange
+geweſen, und iſ zu vermuten, daß 4 Pfennige ein alter
+Groſchen...
+- 1354: [jahre/1354/README.md](../jahre/1354/README.md) – An Münzen ſind im Schwange gegangen Pfundheller,
+| Schilling - Pfennige, Scho>-Groſchen, Groſchen, Mark,
+Marca ponderata...
+- 1377: [jahre/1377/README.md](../jahre/1377/README.md) – Von einem
+halben Fuder Landwein 2 Schilling Pfennige, von einem
+ganzen 4 Schilling...
+- 1499: [jahre/1499/README.md](../jahre/1499/README.md) – Gulden
+
+: gelten, item die Pfennige, daß 9 alte Pfennige einen der
+obgedachten Groſchen ausmachen...
+- 1503: [jahre/1503/README.md](../jahre/1503/README.md) – Pfennige, wie das in Gerichten üblich
+geweſen...
+- 1512: [jahre/1512/README.md](../jahre/1512/README.md) – Biſchof Johannes hat im Stifte Harniſchgeld, aufs
+Scho> 6 Pfennige geſeßt, deſſen haben ſih die von Naum-
+burg von den Gütern von Schönburg...
+- 1522: [jahre/1522/README.md](../jahre/1522/README.md) – Die Heimbürger des Dorfes Flemmingen pflegen auf
+den Abend Martini 18 Pfennige Martinzinſen, welche
+-Rutſcherzinſen heißen, dem Rate zu brin...
+- 1528: [jahre/1528/README.md](../jahre/1528/README.md) – zu Sachſen, als des Stiftes Schußfürſt, hat
+aus dem Stifte von jedem Scho> 8 Pfennige Reiſegeld
+begehrt, deswegen die Stiſtsſtände zu Zeiß a...
+- 1544: [jahre/1544/README.md](../jahre/1544/README.md) – Pfennige vom Wagen und 1 a...

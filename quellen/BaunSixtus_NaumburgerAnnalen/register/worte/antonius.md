@@ -1,0 +1,23 @@
+# Antonius
+
+**Ersterwähnung:** 1437
+
+## Vorkommen
+- 1437: [jahre/1437/README.md](../jahre/1437/README.md) – Geſchehen na<h Antonius...
+- 1525: [jahre/1525/README.md](../jahre/1525/README.md) – Und dieſes Fahr iſ baccalaureus Antonius Ammer=-
+bah zum erſten Schulmeiſter angenommen und Oberſchul-
+meiſter genannt worden, und der Rat h...
+- 1530: [jahre/1530/README.md](../jahre/1530/README.md) – Herrn Antonius Fiedler hat der Rat nah Abſterben
+Georg Behrs zu dem Lehen und Altar der Jungfrau
+Maria in der Pfarrkirhe zu S...
+- 1534: [jahre/1534/README.md](../jahre/1534/README.md) – Antonius Fronfuhr i} in die Schinderei nebſt einem
+andern eingefallen und hat darin den Abde>er entleiben
+wollen, auh ſonſt, wer ihnen begeg...
+- 1535: [jahre/1535/README.md](../jahre/1535/README.md) – Antonius Niklas iﬀ Schulmeiſter geweſen und hat
+Erasmus, den baccalaureus zum Kollegen gehabt...
+- 1540: [jahre/1540/README.md](../jahre/1540/README.md) – 6) Antonius Tham zu Zeig hat ein Lehen geſtiftet,
+Trinitatis, auf dem hohen Altar, geht vom Rate zu
+leihen und hat Einkommen 14 fl...
+- 1550: [jahre/1550/README.md](../jahre/1550/README.md) – Antonius Eberbein hat dem Rat Fehdebriefe zuge-
+\chi>t mit Bedrohung, wofern ſi<h der Richter und Friedrich
+Weinbrenner vor der Stadt mit ih...
