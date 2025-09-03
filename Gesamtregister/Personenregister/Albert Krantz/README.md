@@ -1,0 +1,1 @@
+https://de.wikipedia.org/wiki/Albert_Krantz_(Theologe)
